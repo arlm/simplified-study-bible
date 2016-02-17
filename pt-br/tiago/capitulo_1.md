@@ -1,7 +1,9 @@
 # Capítulo 1
 
 Carta de Tiago às Doze tribos:
+
 ##Provas e Tentações
+
 Considerem o fato de passarem por diversas provações com grande alegria porque a prova de sua fé produz perseverança e esta, quando completa, os tornam maduros e íntegros, sem que lhes falte coisa alguma.
 
 Feliz é o homem que persevera na provação, porque depois de aprovado receberá a coroa da vida[^1], que Deus prometeu aos que o amam[^2].
