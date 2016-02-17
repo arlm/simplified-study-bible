@@ -1,4 +1,4 @@
 # Salmos
 
-* [Capítulo 1](salmos/capitulo_1.md)
-* [Capítulo 2](salmos/capitulo_2.md)
+* [Capítulo 1](capitulo_1.md)
+* [Capítulo 2](capitulo_2.md)
