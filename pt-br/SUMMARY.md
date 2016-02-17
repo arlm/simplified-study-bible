@@ -20,4 +20,5 @@
 * [Tiago](tiago/README.md)
    * Capítulo 1
    * Capítulo 2
+   * Capítulo 3
 
