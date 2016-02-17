@@ -1,4 +1,4 @@
 # Provérbios
 
-* [Capítulo 1](proverbios/capitulo_1.md)
-* [Capítulo 2](proverbios/capitulo_2.md)
+* [Capítulo 1](capitulo_1.md)
+* [Capítulo 2](capitulo_2.md)
