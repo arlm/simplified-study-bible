@@ -4,7 +4,7 @@
 * [Gênesis](genesis/README.md)
    * [Capítulo 1](genesis/capitulo1_md.md)
    * [Capítulo 2](genesis/capitulo2.md)
-   * [Capítulo 3](genesis/capitulo_3.md)
+   * [Capítulo 3](genesis/capitulo3.md)
 * [Provérbios](proverbios/README.md)
    * [Capítulo 1](proverbios/capitulo_1.md)
    * [Capítulo 2](proverbios/capitulo_2.md)
