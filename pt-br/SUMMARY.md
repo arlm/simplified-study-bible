@@ -21,6 +21,6 @@
    * [Capítulo 1](tiago/capitulo_1.md)
    * [Capítulo 2](tiago/capitulo_2.md)
    * [Capítulo 3](tiago/capitulo_3.md)
-   * Capítulo 4
+   * [Capítulo 4](tiago/capitulo_4.md)
    * Capítulo 5
 
