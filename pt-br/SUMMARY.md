@@ -1,7 +1,6 @@
 # Índice
 
 * [Introduction](README.md)
-   * [Daily Study](daily_study.md)
 * [Gênesis](genesis/README.md)
    * [Capítulo 1](genesis/capitulo_1.md)
    * [Capítulo 2](genesis/capitulo_2.md)
