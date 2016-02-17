@@ -19,4 +19,5 @@
    * [Capítulo 2](mateus/capitulo_2.md)
 * [Tiago](tiago/README.md)
    * Capítulo 1
+   * Capítulo 2
 
