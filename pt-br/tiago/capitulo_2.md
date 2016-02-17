@@ -42,7 +42,7 @@ Mas se alguém disser: *“Você tem fé; eu tenho obras”*. Eu lhe diria: *“
 
 Você crê que existe um só Deus? Muito bem! Até mesmo os demônios creem – e tremem!
 
-Quer certificar-se de que a fé sem obras é inútil <font color="blue"> e morta</font>?
+Quer certificar-se de que a fé sem obras é inútil <font color="darkgray"> e morta</font>?
 
 A fé e as obras estavam atuando juntas quando Abraão foi justificado pelas suas obras quando ofereceu seu filho Isaque sobre o altar[^6], e assim a fé foi aperfeiçoada pelas obras. Assim cumpriu-se a Escritura que diz em Gênesis 15.6 e ele foi chamado amigo de Deus:
 
