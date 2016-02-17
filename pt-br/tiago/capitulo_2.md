@@ -29,3 +29,29 @@ Falem e ajam copmo quem será julgado pela lei da liberdade[^4]; porque será ex
 [^4] Lei da liberdade
 
 [^5] Juízo sem misericórdia
+
+##Fé e Obras
+
+De que adianta se ter fé se não se tem obras? Acaso a fé pode salvá-lo?
+
+Se um irmão ou irmã estiver necessitando de roupas e do alimento de cada dia e você lhe disser: *“Vá em paz, aqueça-se e alimente-se até satisfazer-se”*, mas não lher der nada, de que adianta isso?
+
+A fé, por si só, se não for acompanhada de obras, está morta.
+
+Mas se alguém disser: *“Você tem fé; eu tenho obras”*. Eu lhe diria: *“Mostre-me a sua fé sem obras e eu lhe mostrareia minha fé pelas obras”*.
+
+Você crê que existe um só Deus? Muito bem! Até mesmo os demônios creem – e tremem!
+
+Quer certificar-se de que a fé sem obras é inútil <font color="blue"> e morta</font>?
+
+A fé e as obras estavam atuando juntas quando Abraão foi justificado pelas suas obras quando ofereceu seu filho Isaque sobre o altar[^6], e assim a fé foi aperfeiçoada pelas obras. Assim cumpriu-se a Escritura que diz em Gênesis 15.6 e ele foi chamado amigo de Deus:
+
+> “Abraão creu no Senhor, e isso lhe foi crediado como justiça.”
+
+Vejam que uma pessoa é justificada por obras, e não apenas pela fé. Caso semelhante é o de Raabe, a prostituta[^7]: ela não foi justificada pelas obras, quando acolheu os espias e os fez sair por outro caminho?
+
+Assim o corpo sem espírito está morto, também a fé sem obras está morta.
+
+[^6] Abraão oferece seu filho Isaque em sacrifício
+
+[^7] Raabe acolhe os espias e os ajuda a escapar
