@@ -24,4 +24,4 @@ Se alguém acha que é sábio e tem entendimento, que o demonstre por seu bom pr
 
 Contudo se vocês abrigam no coração inveja amarga e ambição egoísta, não se gloriem disso enm neguem a verdade. Esse tipo de “sabedoria” não vem dos céus, é demoníaca; é terrena e não espiritual. Pois onde há inveja  e ambição egoísta há confusão e toda espécie de males.
 
-Mas a sabedoria que vem do alto é antes de tudo opura; depois pacífica, amável, compreensiva, cheia de misericórdia e de bons frutos, imparcial e sincera. O fruto da justiça semeia-se em paz para<font color="blue">, ou pelos,</font> os pacificadores.
+Mas a sabedoria que vem do alto é antes de tudo opura; depois pacífica, amável, compreensiva, cheia de misericórdia e de bons frutos, imparcial e sincera. O fruto da justiça semeia-se em paz para<font color="darkgray">, ou pelos,</font> os pacificadores.
