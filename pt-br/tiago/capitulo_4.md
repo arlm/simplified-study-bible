@@ -10,4 +10,4 @@ Vocês não tem, porque nõa pedem e quando pedem, não recebem, pois pedem por 
 
 Adúlteros! Vocês não sabem que a amizade com o mundo é inimizade com Deus? Quem quer ser amigo do mundo faz-se inimigo de Deus.
 
-Vocês acham que é sem razão que a Escritura diz que o Espírito que Ele fez habitar em nós tem fortes ciúmes? <font color="blue">Que Deus tem fortes ciúmes pelo espírito que Ele fez habitar em nós?</font> <font color="blue">Ou ainda</font> <font color="blue">que o Espírito que ele fez habitar em nós nos ama zelozamente?</font>
+Vocês acham que é sem razão que a Escritura diz que o Espírito que Ele fez habitar em nós tem fortes ciúmes? <font color="darkgray">Que Deus tem fortes ciúmes pelo espírito que Ele fez habitar em nós?</font> <font color="blue">Ou ainda</font> <font color="darkgray">que o Espírito que ele fez habitar em nós nos ama zelozamente?</font>
