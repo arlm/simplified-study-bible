@@ -2,7 +2,7 @@
 
 #A Submissão a Deus
 
-De onde vêm as guerras e contendas que há entre vocês? Não vêm das paixões que guerreiam dentro de vocês <font = color="blue">e nos seus membros</font>?
+De onde vêm as guerras e contendas que há entre vocês? Não vêm das paixões que guerreiam dentro de vocês <font = color="darkgray">e nos seus membros</font>?
 
 Vocês cobiçam coisas, mas não as têm; matam e invejam, mas não conseguem obter o que desejam. Vocês vivem a lutando e fazendo guerras.
 
