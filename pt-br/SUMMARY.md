@@ -1,4 +1,4 @@
-# Índice
+# Summary
 
 * [Introduction](README.md)
 * [Gênesis](genesis/README.md)
@@ -8,7 +8,7 @@
 * [Provérbios](proverbios/README.md)
    * [Capítulo 1](proverbios/capitulo_1.md)
    * [Capítulo 2](proverbios/capitulo_2.md)
-* [Josué](josue/README)
+* [Josué](josue/README.md)
    * [Capítulo 1](josue/capitulo_1.md)
    * [Capítulo 2](josue/capitulo_2.md)
 * [Salmos](salmos/README.md)
