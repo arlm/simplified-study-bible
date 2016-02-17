@@ -1,4 +1,4 @@
-My Awesome Book
+Simplified Study Bible
 =======
 
-This file file serves as your book's preface, a great place to describe your book's content and ideas.
+This is a paraphrase of the Bible simplified so that it can b
