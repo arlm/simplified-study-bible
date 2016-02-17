@@ -19,7 +19,7 @@
    * [Capítulo 2](mateus/capitulo_2.md)
 * [Tiago](tiago/README.md)
    * [Capítulo 1](tiago/capitulo_1.md)
-   * Capítulo 2
+   * [Capítulo 2](tiago/capitulo_2.md)
    * Capítulo 3
    * Capítulo 4
    * Capítulo 5
