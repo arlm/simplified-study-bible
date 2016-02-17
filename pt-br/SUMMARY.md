@@ -20,7 +20,7 @@
 * [Tiago](tiago/README.md)
    * [Capítulo 1](tiago/capitulo_1.md)
    * [Capítulo 2](tiago/capitulo_2.md)
-   * Capítulo 3
+   * [Capítulo 3](tiago/capitulo_3.md)
    * Capítulo 4
    * Capítulo 5
 
