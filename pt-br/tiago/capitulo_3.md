@@ -18,7 +18,7 @@ Com a língua bendizemos o Senhor e com ela amaldiçoamos os homens, que foram c
 
 [^3] Pode sair água doce e salgada da mesma fonte? Pode uma figueira produzir azeitonas ou uma videira figos?
 
-##Os Dois Tipos de Sabedoria
+##Os dois tipos de sabedoria
 
 Se alguém acha que é sábio e instruído, que o demonstre por seu bom procedimento, mediante obras praticadas com a humildade que provém da sabedoria.
 
