@@ -3,5 +3,27 @@
         "language-picker",
         "autocover"
     ],
-    "pluginsConfig": {}
+    "pluginsConfig": {
+        "language-picker": {
+            "grid-columns": 3
+        },
+        "autocover" : {
+            {
+                "title": "Bíblia de Estudos Simplificada",
+                "author": "Alexandre Rocha Lima e Marcondes",
+                "font": {
+                    "size": null,
+                    "family": "Impact",
+                    "color": "#FFF"
+                },
+                "size": {
+                    "w": 1800,
+                    "h": 2360
+                },
+                "background": {
+                    "color": "#09F"
+                }
+            }
+        }
+    }
 }
