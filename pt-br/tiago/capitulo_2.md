@@ -4,7 +4,7 @@
 
 Não façam diferença entre as pessoas, tratando-as com parcialidade.
 
-Se derem um lgar especial ao que está bem vestido, em detrimento ao que está com roupas velhas e sujas não estão vocês fazendo discriminação, fazendo julgamentos com critérios errados?
+Se derem um lugar especial ao que está bem vestido, em detrimento ao que está com roupas velhas e sujas não estão vocês fazendo discriminação, julgando com critérios errados?
 
 Deus não escolheu os probres aos olhos do mundo para serem ricos em fé[^1] e herdarem o Reino que ele prometeu aos que o amam? Mas vocês têm desprezado o pobre.
 
@@ -16,9 +16,9 @@ Se obedecerem à Lei do Reino estarão agindo corretamente, assim como está esc
 
 Mas, se tratarem os outros com parcialidade, estarão cometendo pecado e serão condenados pela Lei como transgresores.
 
-Quem obedece a toda a lei, mas tropeça em apenas um ponto, torna-se culpado de quabrá-la inteiramente. Pois aquele que disse <cite>“Não adulterarás”</cite>[^2] também disse <cite>“Não matarás”</cite>[^3]. Se você não comete adultério mas comete assassinato, torna-se transgressor da Lei.
+Quem obedece a toda a lei, mas tropeça em apenas um ponto, torna-se culpado de quabrá-la inteiramente. Pois o mesmo que disse: <cite>“Não adulterarás”</cite>[^2] também disse: <cite>“Não matarás”</cite>[^3]. Se você não comete adultério mas comete assassinato, torna-se transgressor da Lei.
 
-Falem e ajam copmo quem será julgado pela lei da liberdade[^4]; porque será exercido juízo sem misericórdia sobre quem não foi misericordioso[^5]. A misericórida  triunfa sobre o juízo!
+Falem e ajam como quem será julgado pela lei da liberdade[^4]. Porque será exercido juízo sem misericórdia para quem não tem usado de misericórdia[^5]. A misericórida  triunfa sobre o juízo!
 
 [^1] Pobres herdando o reino dos céus
 
@@ -32,23 +32,25 @@ Falem e ajam copmo quem será julgado pela lei da liberdade[^4]; porque será ex
 
 ##Fé e Obras
 
-De que adianta se ter fé se não se tem obras? Acaso a fé pode salvá-lo?
+De que adianta se alguém disser que tem fé se não tiver obras? Acaso esta fé pode salvá-lo?
 
-Se um irmão ou irmã estiver necessitando de roupas e do alimento de cada dia e você lhe disser: *“Vá em paz, aqueça-se e alimente-se até satisfazer-se”*, mas não lher der nada, de que adianta isso?
+Se um irmão ou irmã estiver necessitando de roupas e do alimento de cada dia e você lhe disser: *“Vá em paz, aqueça-se e alimente-se até satisfazer-se”*, mas não lher der o que é necessário para o corpo, de que adianta isso?
 
-A fé, por si só, se não for acompanhada de obras, está morta.
+A fé se não for acompanhada de obras, está morta em si mesma.
 
-Mas se alguém disser: *“Você tem fé; eu tenho obras”*. Eu lhe diria: *“Mostre-me a sua fé sem obras e eu lhe mostrareia minha fé pelas obras”*.
+Mas se alguém disser: *“Você tem fé, e eu tenho obras”*. Eu lhe diria: *“Mostre-me a sua fé sem as obras e eu lhe mostrarei a minha fé pelas obras”*.
 
-Você crê que existe um só Deus? Muito bem! Até mesmo os demônios creem – e tremem!
+Você crê que existe um só Deus? Faz bem! Os demônios também o creem e estremecem.
 
 Quer certificar-se de que a fé sem obras é inútil <font color="darkgray"> e morta</font>?
 
-A fé e as obras estavam atuando juntas quando Abraão foi justificado pelas suas obras quando ofereceu seu filho Isaque sobre o altar[^6], e assim a fé foi aperfeiçoada pelas obras. Assim cumpriu-se a Escritura que diz em Gênesis 15.6 e ele foi chamado amigo de Deus:
+A fé e as obras estavam atuando juntas quando Abraão foi justificado pelas suas obras quando ofereceu seu filho Isaque sobre o altar[^6]. Pelas obras a sua fé foi consumada. Assim cumpriu-se a Escritura que diz em Gênesis 15.6 e ele foi chamado amigo de Deus:
 
 > “Abraão creu no Senhor, e isso lhe foi crediado como justiça.”
 
-Vejam que uma pessoa é justificada por obras, e não apenas pela fé. Caso semelhante é o de Raabe, a prostituta[^7]: ela não foi justificada pelas obras, quando acolheu os espias e os fez sair por outro caminho?
+Vejam que uma pessoa é justificada por obras, e não apenas pela fé.
+
+Caso semelhante é o de Raabe, a prostituta[^7]: ela não foi justificada pelas obras, quando acolheu os espias e os fez sair por outro caminho?
 
 Assim o corpo sem espírito está morto, também a fé sem obras está morta.
 
