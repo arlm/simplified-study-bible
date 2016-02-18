@@ -1,6 +1,6 @@
 # Capítulo 3
 
-##O Domínio sobre a Língua
+##O domínio sobre a língua
 
 Não sejam muitos de vocês mestres, pois nós, os que ensinamos, seremos julgados com mais rigor.
 
