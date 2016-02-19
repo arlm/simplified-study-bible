@@ -2,34 +2,40 @@
 
 #A submissão a Deus
 
-De onde vêm as guerras e contendas que há entre vocês? Não vêm das paixões que guerreiam dentro de vocês <font = color="darkgray">e nos seus membros</font>?
+De onde vêm as brigas e discussões que há entre vocês? De onde vem, se não das paixões que dominam vocês<font = color="darkgray">, constantemente lutando dentro do corpo de vocês</font>?
 
-Vocês cobiçam coisas, mas não as têm; matam e invejam, mas não conseguem obter o que desejam. Vocês vivem a lutando e fazendo guerras.
+Vocês cobiçam alguma coisa, mas como não podem ter o que querem; invejam e matam. Vocês vivem lutando e fazendo guerras.
 
-**Vocês não tem, porque não pedem; e quando pedem não recebem, porque pedem por motivos errados, para gastar em seus prazeres**.
+**Vocês não conseguem aquilo que querem porque não pedem a Deus. E e quando pedem, não recebem nada, porque pedem por motivos errados, para gastar em seus próprios prazeres**.
 
-Adúlteros! Vocês não sabem que a amizade com o mundo é inimizade com Deus? Quem quer ser amigo do mundo faz-se inimigo de Deus.
+Adúlteros <font color="darkgray">infiéis</font>! Vocês não sabem que a amando o mundo estão odiando a Deus? Quem quer ser amigo do mundo, torna-se inimigo de Deus.
 
-Vocês acham que é sem razão que a Escritura diz que o Espírito que Ele fez habitar em nós tem fortes ciúmes? <font color="darkgray">Que Deus tem fortes ciúmes pelo espírito que Ele fez habitar em nós?</font> <font color="blue">Ou ainda</font> <font color="darkgray">que o Espírito que ele fez habitar em nós nos ama zelozamente?</font>
+Ou vocês acham que é sem razão que a Escritura diz: “Deus quer que o Espírito que Ele colocou em vós viva somente para Ele”? <font color="blue">Não acham</font> <font color="darkgray">que Deus tem fortes ciúmes pelo Espírito que Ele fez habitar em nós?</font> <font color="blue">Ou ainda</font> <font color="darkgray">que o Espírito que Ele fez habitar em nós nos ama zelozamente?</font>[^1]
 
-Deus nos concede graça maior, por isso a Escritura nos diz em Provérbios 3.34<font color="blue">, segundo a Septuaginta</font>:
+Mas Deus nos concede graça maior<font color="darkgray">, por sua bondade</font>, por isso a Escritura nos diz em Provérbios 3.34 <sup><font color="blue">segundo a Septuaginta</font></sup>:
 
 > “Deus se opõe aos orgulhosos, mas concede graça aos humildes”.
 
 ##Devemos resistir às paixões
 
-Portanto, submetam-se a Deus e resistam ao Diabo, e ele fugirá de vocês. Aproximem-se de Deus, e Ele se aproximará de vocês! Pecadores, limpem as mãos; e vocês que têm a mente dividida<font color="darkgray">ou são vacilantes</font>, purifiquem os seus corações.
+Portanto, submetam-se a Deus. Resistam ao Diabo e ele fugirá de vocês. Aproximem-se de Deus e Ele se aproximará de vocês!
 
-Entristemçam-se, lamentem-se e chorem. Troquem o riso por lamento e a alegria por tristeza. Humilhem-se diante do Senhor, e Ele os exaltará.
+Pecadores, limpem as suas mãos! E vocês que têm a mente dividida<font color="darkgray">ou são vacilantes</font><font color="blue">, querendo amar a Deus e ao mundo ao mesmo tempo</font>, purifiquem os seus corações!
+
+Entristemçam-se, lamentem-se e chorem! Troquem o riso por lamento e a sua alegria por tristeza. Humilhem-se diante do Senhor e Ele os exaltará.
 
 ##Não falemos mal uns dos outros
 
-Não falem mal uns dos outros, pois quem fala mal de um irmão ou o julga, fala contra a Lei e a julga. Quando você julga a Lei, não a cumpre, mas age como juiz. Há apenas um Legislador e Juiz, aquele que pode salvar e destruir. Mas quem é você para julgar o seu próximo?
+Não falem mal uns dos outros. Pois quem fala mal do outro ou o julga, fala contra a lei de Deus e a julga.Você não está cumprindo o que a lei ordena quando a julga, mas se fazendo de juiz. Há apenas um Legislador e Juiz, Deus, e somente Ele pode salvar e destruir. Mas quem é você para julgar o seu próximo?
 
-Você que diz: *“Hoje ou amanhã iremos para esta ou aquela cidade, passaremos um ano ali, faremos negócios e ganharemos dinheiro”*. Você nem sabe o que acontecerá amanhã![^1] Você deveria dizer: *“Se o Senhor quiser, viveremos e faremos isto ou aquilo”*.
+##Deixe Deus planejar a sua vida
 
-Você que se vangloria das suas pretenções<font color="darkgray">, e presunções,</font> atente: toda vanglória como essa é maligna.
+Você que diz: *“Hoje ou amanhã iremos para esta ou aquela cidade, passaremos um ano ali, fazendo negócios e ganhando dinheiro”*. Você nem mesmo sabe o que acontecerá amanhã com sua vida![^2] Em vez disso, você deveria dizer: *“Se o Senhor quiser, viveremos e faremos isto ou aquilo”*.
 
-Pensem nisso: **Quem sabe fazer o bem e não o faz, este comete pecado**.
+Você que se orgulha das suas arrogantes pretenções<font color="darkgray">, e presunções,</font> preste atenção: todo esse orgulho é mau.
 
-[^1] Somos como a neblina que aparece por um tempo e depois se dissipa.
+Pensem nisso: **Quem sabe fazer o bem<font color="blue">, e conhece o que deve ser feito,</font> e não o faz, este comete pecado**.
+
+[^1] Já em Êxodo 20.5 diz: <cite>“Não se ajoelhe diante de ídolos, nem os adore, pois eu, o Senhor, sou o seu Deus e não tolero outros deuses. Eu castigo aqueles que me odeiam, até os seus bisnetos e trinetos”</cite> <sup>NTLH</sup> ou <cite>“Não te prostrarás diante desses deuses e não os servirás, porquanto Eu, o SENHOR teu Deus, sou um Deus ciumento, que puno a iniquidade dos pais sobre os filhos até a terceira e quarta geração dos que me odeiam”</cite> <sup>KJA</sup>
+
+[^2] Somos como a neblina que aparece por um instante e logo se dissipa.
