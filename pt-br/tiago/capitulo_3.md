@@ -2,26 +2,26 @@
 
 ##O domínio sobre a língua
 
-Não sejam muitos de vocês mestres, pois nós, os que ensinamos, seremos julgados com mais rigor.
+Não devem haver entre vocês muitos mestres, pois nós, os que ensinamos, seremos julgados com mais rigor.
 
-Todos tropeçamos de muitas maneiras. Se não tropeça em sua palavra, é um homem perfeito, sendo também capaz de dominar também todo o seu corpo.
+Todos nós tropeçamos<font color="darkgray">, e pecamos,</font> de muitas maneiras. Se não tropeça<font color="darkgray"> e peca</font> em suas palavras <font color="darkgray">ao falar</font>, é uma pessoa perfeita, capaz de dominar todo o seu corpo também.
 
-A língua é um pequeno órgão do corpo, mas se vangloria de grandes coisas.[^1] A língua é um mundo de iniquidade. Colocada entre os membros do nosso corpo, contamina a pessoa por inteiro[^2], incendeia todo o curso de sua vida, sendo ela mesma incendiada pelo inferno.
+A língua é um pequeno órgão do corpo, mas se vangloria de fazer grandes coisas[^1]. A língua é um mundo de iniquidade. Colocada entre os membros do nosso corpo, contamina a pessoa por inteiro[^2], incendeia todo o curso de sua vida, sendo ela mesma incendiada pelo inferno.
 
-Toda espécie de animais, aves répteis e criaturas do mar tem sido domadas pela espécie humana, a língua, porém, ninguém consegue domar. É um mal incontrolável, cheio de veneno mortífero.
+Toda espécie de animais, aves répteis e criaturas do mar tem sido domadas pela espécie humana. A língua, porém, ninguém consegue domar. É um mal incontrolável<font color="darkgray">, selvagem e má</font>, cheia de veneno mortal.
 
-Com a língua bendizemos o Senhor e com ela amaldiçoamos os homens, que foram criados à imagem de Deus. Da mesma boca procedem bênção e maldição. Não pode ser assim![^3]
+Com a língua bendizemos<font color="darkgray">, e louvamos,</font> ao Senhor e Pai e com ela amaldiçoamos as pessoas que foram criadas à imagem de Deus. Da mesma boca procedem bênção e maldição. Não podemos ser assim![^3]
 
-[^1] Um freio na boca do cavalo permite controlar todo o seu corpo e um pequeno leme dirige um navio conforme a vontade do piloto.
+[^1] Colocamos um freio na boca do cavalo para controlar todo o seu corpo e um pequeno leme para dirigir um grande navio conforme a vontade do piloto.
 
-[^2] Um grande bosque é incendiado por uma simples fagulha.
+[^2] Um grande bosque é incendiado por uma simples fagulha ou uma pequena chama.
 
 [^3] Pode sair água doce e salgada da mesma fonte? Pode uma figueira produzir azeitonas ou uma videira figos?
 
 ##Os dois tipos de sabedoria
 
-Se alguém acha que é sábio e instruído, que o demonstre por seu bom procedimento, mediante obras praticadas com a humildade que provém da sabedoria.
+Se alguém acha que é sábio e instruído, então que demonstre por meio do seu coportamento, com obras praticadas com a humildade<font color="darkgray">, e mansidão</font> que a sabedoria lhe dá.
 
-Contudo se vocês abrigam no coração inveja amarga e ambição egoísta, não se gloriem disso nem neguem a verdade. Esse tipo de sabedoria não vem dos céus, é demoníaca; é terrena e não espiritual. Pois onde há inveja e ambição egoísta há confusão e toda espécie de males.
+Contudo, se vocês têm inveja amarga e ambição egoísta em seus corações, não se gloriem disso, nem neguem a verdade. Esse tipo de sabedoria não vem do céu, é demoníaca<font color= "darkgray">, é do Diabo</font>; é terrena e não espiritual. Pois onde há inveja e ambição egoísta há confusão e toda espécie de coisas ruins.
 
-Mas a sabedoria que vem de Deus é antes de tudo pura; depois pacífica, amável<font color="darkgray">, moderada</font>, compreensiva, cheia de misericórdia e de bons frutos, imparcial e sincera<font color="darkgray">, sem hipocrisia</font>. O fruto da justiça é semeado em paz para<font color="darkgray">, ou pelos</font> pacificadores.
+Mas a sabedoria que vem de Deus é, antes de tudo, pura; depois pacífica, amável<font color="darkgray">, moderada</font>, compreensiva, cheia de misericórdia e de bons frutos e é também imparcial e sincera<font color="darkgray">, sem hipocrisia</font>. O fruto da justiça virá pelas sementes daqueles que promovem a paz, pois é plantada num clima de paz.
