@@ -20,6 +20,7 @@ Todo material aqui presente teve como fonte de leitura, e pesquisa, as seguintes
 * Nova Versão Internacional<sup>&reg;</sup> (NVI-PT) &mdash; <small><sup>&copy;</sup> Biblica Inc., 1993, 2000 <sub>[Wikipedia](https://pt.wikipedia.org/wiki/Nova_Vers%C3%A3o_Internacional)</sub></small>
 * Tradução Brasileira (TB10) &mdash; <small><sup>&copy;</sup> Sociedade Bíblica do Brasil, 1917 <sub>[Wikipedia](https://pt.wikipedia.org/wiki/Tradu%C3%A7%C3%A3o_Brasileira)</sub></small>
 * Novo Testamento Perjanjian: Versão Fácil de Ler (VFL) &mdash; <small><sup>&copy;</sup> World Bible Translation Center Inc., 1999 <sub>[Site](http://www.wbtc.org/)</sub></small>
+* Nova Tradução na Linguagem de Hoje (NTLH) &mdash; <small><sup>&copy;</sup> Sociedade Bíblica do Brasil, 2000 <sub>[Site](http://www.sbb.org.br/)</sub></small>
 
 [^1] Tiago 1.5-6
 
