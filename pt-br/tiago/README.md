@@ -8,5 +8,9 @@ Carta de Tiago, servo de Deus e do Senhor Jesus Cristo, às doze tribos de Israe
 * [Capítulo 4](capitulo_4.md)
 * [Capítulo 5](capitulo_5.md)
 
-# Carta simplificada
+# Carta para adultos
+
+
+
+# Carta para crianças
 
