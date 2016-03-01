@@ -12,6 +12,8 @@ Carta de Tiago, servo de Deus e do Senhor Jesus Cristo, às doze tribos de Israe
 
 Continue fiel, mesmo na provação ou aflição, porque quando a fé é colocada à prova, e vence, produz perseverança e os torna maduros, íntegros e corretos, sem que lhes falte coisa alguma.
 
+Sejam pacientes até a vinda do Senhor. Fortaleçam os seus corações, não desanimem, pois o Senhor virá logo.
+
 Cada um é tentado pelos seus próprios maus desejos e cobiça, quando estes o atraem e seduzem. Estes maus desejos fazem com que o pecado seja concebido e nasça; e o pecado, após consumado, produz a morte. Deus não pode ser tentado pelo mal e Ele mesmo não tenta ninguém.
 
 Portanto, submetam-se a Deus, em obediência, e resistam ao Diabo, o enfrentando, que ele fugirá de vocês. Aproximem-se de Deus e Ele se aproximará de vocês!
@@ -55,16 +57,30 @@ A religião pura e verdadeira que Deus aceita é esta:
 * Praticar o que a mensagem ensina e não devem somente ouvir;
 * O humilde deve se orgulhar quando Deus lhe der riquezas e posição elevada;
 * O rico deve sentir orgulho quando Deus o fizer humilde;
+* O rico não deve explorar, enganar ou perseguir os mais humildes;
 * Não faça diferença entre as pessoas por causa de sua aparência, sendo parciais com as pessoas;
 * Ame cada um o seu próximo como a si mesmo;
 * Não seja hipócrita e deixe de usar a sua língua tanto para abençoar quanto para amaldiçoar;
 * Tire a inveja amarga e  a ambição egoísta de seu coração;
-* Não fale mal dos outros;
+* Não fale mal ou se queixe dos outros;
 * Não se orgulhe das suas pretenções e presunções;
+* Quando prometer alguma coisa, não jure pelo céu, nem pela terra, nem por nada mais.
+* Diga somente ”sim”, quando for sim, e “não”, quando for não;
+* Confesse os seus pecados aos outros e ore pelos outros, para que seja curado
 
 Pensem nisso: **Quem sabe fazer o bem, e conhece o que deve ser feito, mas não faz, este comete pecado**.
 
 Você que diz: *“Hoje ou amanhã iremos para esta ou aquela cidade, passaremos um ano ali, fazendo negócios e ganhando dinheiro”*. Você nem mesmo sabe o que acontecerá amanhã com sua vida! Em vez disso, você deveria dizer: *“Se o Senhor quiser, estaremos vivos e faremos isto ou aquilo”*.
+
+Se alguém está sofrendo? Ele deve orar.
+
+Alguém está feliz, e alegre? Deve cantar hinos de louvor.
+
+Se alguém estiver doente, que chame os presbíteros da igreja, para orarem por ele e colocarem óleo sobre sua cabeça, o unjindo, em nome do Senhor. Essa oração, feita com fé, curará o doente. O Senhor lhe dará saúde e perdoará os pecados que tiver cometido.
+
+A oração de uma pessoa obediente a Deus é poderosa e eficaz.
+
+Se algum de vocês se desviar da verdade, e alguém o trouxer de volta para o bom caminho, lembrem-se disso: **Quem fizer com que um pecador deixe o seu mau caminho, e seus erros, salvará a alma dessa pessoa da morte e fará com que uma multidão de pecados sejam perdoados, e os cobrirá.**
 
 # Carta para crianças
 
