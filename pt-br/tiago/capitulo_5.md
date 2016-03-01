@@ -28,7 +28,7 @@ Se alguém está sofrendo? Ele deve orar.
 
 Alguém está feliz<font color="darkgray">, e alegre</font>? Deve cantar hinos de louvor.
 
-Se alguém estiver doente, que chame os presbíteros da igreja, para orarem por ele e colocarem óleo sobre sua cabeça<font color="darkgray">, o unjindo,</font>, em nome do Senhor. Essa oração, feita com fé, curará o doente. O Senhor lhe dará saúde e perdoará os pecados que tiver cometido.
+Se alguém estiver doente, que chame os presbíteros da igreja, para orarem por ele e colocarem óleo sobre sua cabeça<font color="darkgray">, o unjindo</font>, em nome do Senhor. Essa oração, feita com fé, curará o doente. O Senhor lhe dará saúde e perdoará os pecados que tiver cometido.
 
 Portanto, **confessem os seus pecados uns aos outros e orem uns pelos outros, para que vocês sejam curados**.
 
