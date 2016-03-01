@@ -10,9 +10,7 @@ Carta de Tiago, servo de Deus e do Senhor Jesus Cristo, às doze tribos de Israe
 
 # Carta para adultos
 
-Servos de Deus espalhados pelo mundo,
-
-Continuem fiéis, mesmo na provação ou aflição, porque sua fé, quando vence as provas, produz perseverança e os torna maduros, íntegros e corretos, sem que lhes falte coisa alguma.
+Continue fiel, mesmo na provação ou aflição, porque quando a fé é colocada à prova, e vence, produz perseverança e os torna maduros, íntegros e corretos, sem que lhes falte coisa alguma.
 
 Sejam pacientes até a vinda do Senhor. Fortaleçam os seus corações, não desanimem, pois o Senhor virá logo.
 
