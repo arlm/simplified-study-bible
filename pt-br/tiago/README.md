@@ -14,6 +14,8 @@ Continue fiel, mesmo na provação ou aflição, porque quando a fé é colocada
 
 Cada um é tentado pelos seus próprios maus desejos e cobiça, quando estes o atraem e seduzem. Estes maus desejos fazem com que o pecado seja concebido e nasça; e o pecado, após consumado, produz a morte. Deus não pode ser tentado pelo mal e Ele mesmo não tenta ninguém.
 
+Portanto, submetam-se a Deus, em obediência, e resistam ao Diabo, o enfrentando, que ele fugirá de vocês. Aproximem-se de Deus e Ele se aproximará de vocês!
+
 Se alguém acha que é sábio e instruído, então que demonstre isso por meio de seu coportamento, com obras praticadas com a humildade, e a mansidão que a sabedoria lhe dá.
 
 A sabedoria que vem de Deus é, antes de tudo, pura; depois pacífica, amável, moderada, compreensiva, cheia de misericórdia e de bons frutos. Também é imparcial e sincera, sem hipocrisia.
@@ -34,6 +36,12 @@ Poucos entre vocês devem se tornar mestresna Igreja, pois nós, os que ensinamo
 
 Todos nós cometemos erros, e pecamos, de muitas maneiras. Se não tropeça e peca em suas palavras ao falar, é uma pessoa perfeita, capaz de dominar todo o seu corpo também.
 
+Vocês cobiçam alguma coisa, mas como não podem ter o que querem; invejam e matam. Vocês vivem lutando e fazendo guerras.
+
+**Vocês não conseguem o que querem porque não pedem a Deus. E e quando pedem, não recebem nada porque pedem por motivos errados. Vocês pedem para gastar em seus próprios prazeres**.
+
+Gente adúltera e infiel! Vocês não sabem que a amando o mundo estão odiando a Deus? Quem quer ser amigo do mundo se torna inimigo de Deus.
+
 Você crê que existe somente um Deus? Ótimo! Faz bem. Até os demônios acreditam nisso e tremem de medo.
 
 Se alguém pensa ser religioso? Se não soube controlar a sua língua, engana a si mesmo e sua religião não vale de nada!
@@ -51,6 +59,12 @@ A religião pura e verdadeira que Deus aceita é esta:
 * Ame cada um o seu próximo como a si mesmo;
 * Não seja hipócrita e deixe de usar a sua língua tanto para abençoar quanto para amaldiçoar;
 * Tire a inveja amarga e  a ambição egoísta de seu coração;
+* Não fale mal dos outros;
+* Não se orgulhe das suas pretenções e presunções;
+
+Pensem nisso: **Quem sabe fazer o bem, e conhece o que deve ser feito, mas não faz, este comete pecado**.
+
+Você que diz: *“Hoje ou amanhã iremos para esta ou aquela cidade, passaremos um ano ali, fazendo negócios e ganhando dinheiro”*. Você nem mesmo sabe o que acontecerá amanhã com sua vida! Em vez disso, você deveria dizer: *“Se o Senhor quiser, estaremos vivos e faremos isto ou aquilo”*.
 
 # Carta para crianças
 
