@@ -10,43 +10,45 @@ Carta de Tiago, servo de Deus e do Senhor Jesus Cristo, às doze tribos de Israe
 
 # Carta para adultos
 
-Continue fiel, mesmo na provação ou aflição, porque quando a fé é colocada à prova, e vence, produz perseverança e os torna maduros, íntegros e corretos, sem que lhes falte coisa alguma.
+Ao servo de Deus que lê esta carta,
 
-Sejam pacientes até a vinda do Senhor. Fortaleçam os seus corações, não desanimem, pois o Senhor virá logo.
+Continue fiel mesmo na provação ou aflição, porque quando a fé é colocada à prova, e vence, produz perseverança e o torna maduro, íntegro e correto, sem que lhe falte coisa alguma.
 
-Cada um é tentado pelos seus próprios maus desejos e cobiça, quando estes o atraem e seduzem. Estes maus desejos fazem com que o pecado seja concebido e nasça; e o pecado, após consumado, produz a morte. Deus não pode ser tentado pelo mal e Ele mesmo não tenta ninguém.
+Seja paciente até a vinda do Senhor. Fortaleça o seu coração e não desanime, pois o Senhor virá logo.
 
-Portanto, submetam-se a Deus, em obediência, e resistam ao Diabo, o enfrentando, que ele fugirá de vocês. Aproximem-se de Deus e Ele se aproximará de vocês!
+Cada um é tentado pelos seus próprios maus desejos e cobiça, quando estes o atraem e seduzem. Estes maus desejos fazem com que o pecado seja concebido e nasça; e o pecado, após consumado, produz a morte. Lembre-se: Deus não pode ser tentado pelo mal e Ele mesmo não tenta ninguém.
 
-Se alguém acha que é sábio e instruído, então que demonstre isso por meio de seu coportamento, com obras praticadas com a humildade, e a mansidão que a sabedoria lhe dá.
+Portanto, submeta-se a Deus, em obediência, e resista ao Diabo, o enfrentando, que ele fugirá de você. Aproxime-se de Deus e Ele se aproximará de você!
 
-A sabedoria que vem de Deus é, antes de tudo, pura; depois pacífica, amável, moderada, compreensiva, cheia de misericórdia e de bons frutos. Também é imparcial e sincera, sem hipocrisia.
+Você se acha sábio e instruído? Então demonstre isso por meio de seu coportamento, com obras praticadas com a humildade e a mansidão que a sabedoria lhe dá.
 
-Mas se algum de vocês sente falta de sabedoria, peça-a a Deus, que é generoso e dá a todos livremente, de boa vontade; e ela lhe será concedida. Mas peça com fé, sem duvidar de modo nenhum, pois aquele que duvida não receberá coisa alguma do Senhor.
+A sabedoria que vem de Deus é, antes de tudo, pura, depois pacífica, amável, moderada, compreensiva, cheia de misericórdia e de bons frutos. Também é imparcial e sincera, sem hipocrisia.
 
-A fé, se não for acompanhada de obras, está morta em si mesma. Vejam que uma pessoa é justificada por Deus por meio das suas obras, e não apenas pela sua fé. Assim o corpo sem o espírito está morto, também a fé sem as obras está morta!
+Se você sentir falta de sabedoria, peça-a a Deus, que é generoso e a concede livremente, de boa vontade. Mas peça com fé, sem duvidar de modo algum, pois aquele que duvida não receberá coisa alguma do Senhor.
 
-Tudo o que é bom e todo dom que é perfeito vem de Deus, que não muda e não é inconstante.
+A fé, se não for acompanhada de obras, está morta em si mesma. Veja que uma pessoa é justificada por Deus por meio das suas obras, e não apenas pela sua fé. Assim como o corpo sem o espírito está morto, também a fé sem as obras está morta!
 
-Se alguém observar atentamente a lei perfeita, que traz liberdade, e continuar firme na sua prática, não apenas como um ouvinte negligente mas como um praticante ativo, Deus vai abençoar tudo o que essa pessoa fizer.
+Tudo o que é bom, e todo dom que é perfeito, vem de Deus, que não muda e não é inconstante.
 
-Quem segue e obedece a toda a lei, mas falha em obecer em apenas um único ponto, se torna culpado de quebrar todos os outros. Se você não comete adultério, mas comete assassinato, por exemplo, você se torna culpado de quebrar a lei.
+Se você observar atentamente a lei perfeita e continuar firme na sua prática, não apenas como um ouvinte negligente mas como um praticante ativo, Deus vai abençoar tudo o que você fizer.
 
-Falem e vivam como quem será julgado pela lei que nos dá a liberdade. Porque quando Deus julgar, não terá misericórdia de quem não tem usado de misericórdia. Mas as pessoas que tiveram misericórdia dos outros não serão condenados no Dia do Juízo Final.
+S você seguir e obedecer a toda a lei, mas falhar em obecer em apenas um único ponto, se tornará culpado de quebrar todos os outros. Se você não comete adultério, mas comete assassinato, por exemplo, se torna culpado de quebrar a lei.
+
+Fale e viva como quem será julgado pela lei que nos dá a liberdade. Porque quando Deus julgar, não terá misericórdia de quem não tem usado de misericórdia. Mas quem tive misericórdia dos outros não serão condenado no Dia do Juízo Final.
 
 Poucos entre vocês devem se tornar mestresna Igreja, pois nós, os que ensinamos, seremos julgados com mais rigor do que os outros.
 
-Todos nós cometemos erros, e pecamos, de muitas maneiras. Se não tropeça e peca em suas palavras ao falar, é uma pessoa perfeita, capaz de dominar todo o seu corpo também.
+Todos nós cometemos erros, e pecamos, de muitas maneiras. Se alguém não tropeça e peca em suas palavras ao falar, é uma pessoa perfeita, capaz de dominar todo o seu corpo também.
 
-Vocês cobiçam alguma coisa, mas como não podem ter o que querem; invejam e matam. Vocês vivem lutando e fazendo guerras.
+Você cobiça alguma coisa, mas como não pode ter o que quer; inveja e mata. Você vive lutando e fazendo guerras.
 
-**Vocês não conseguem o que querem porque não pedem a Deus. E e quando pedem, não recebem nada porque pedem por motivos errados. Vocês pedem para gastar em seus próprios prazeres**.
+**Você não conseguem o que quer porque não pede a Deus. E e quando pede, não recebe nada porque pede por motivos errados. Você pede para gastar em seus próprios prazeres**.
 
-Gente adúltera e infiel! Vocês não sabem que a amando o mundo estão odiando a Deus? Quem quer ser amigo do mundo se torna inimigo de Deus.
+Você não sabe que amando o mundo está odiando a Deus? Quem quer ser amigo do mundo se torna inimigo de Deus.
 
 Você crê que existe somente um Deus? Ótimo! Faz bem. Até os demônios acreditam nisso e tremem de medo.
 
-Se alguém pensa ser religioso? Se não soube controlar a sua língua, engana a si mesmo e sua religião não vale de nada!
+Você pensa ser religioso? Se não soube controlar a sua língua, engana a si mesmo e sua religião não vale de nada!
 
 A religião pura e verdadeira que Deus aceita é esta:
 * Cuidar dos órfãos e das viúvas nas suas aflições;
@@ -58,29 +60,29 @@ A religião pura e verdadeira que Deus aceita é esta:
 * O humilde deve se orgulhar quando Deus lhe der riquezas e posição elevada;
 * O rico deve sentir orgulho quando Deus o fizer humilde;
 * O rico não deve explorar, enganar ou perseguir os mais humildes;
-* Não faça diferença entre as pessoas por causa de sua aparência, sendo parciais com as pessoas;
-* Ame cada um o seu próximo como a si mesmo;
-* Não seja hipócrita e deixe de usar a sua língua tanto para abençoar quanto para amaldiçoar;
-* Tire a inveja amarga e  a ambição egoísta de seu coração;
-* Não fale mal ou se queixe dos outros;
-* Não se orgulhe das suas pretenções e presunções;
-* Quando prometer alguma coisa, não jure pelo céu, nem pela terra, nem por nada mais.
-* Diga somente ”sim”, quando for sim, e “não”, quando for não;
-* Confesse os seus pecados aos outros e ore pelos outros, para que seja curado
+* Não fazer diferença entre as pessoas por causa de sua aparência, sendo parcial com as pessoas;
+* Amar cada um o seu próximo como a si mesmo;
+* Não ser hipócrita e deixar de usar a sua língua para abençoar e amaldiçoar ao mesmo tempo;
+* Tirar a inveja amarga e  a ambição egoísta do seu coração;
+* Não falar mal ou se queixar dos outros;
+* Não se orgulhar das suas pretenções e presunções;
+* Quando prometer alguma coisa, que não jure pelo céu, nem pela terra, nem por nada mais.
+* Dizer somente ”sim”, quando for sim, e “não”, quando for não;
+* Confessar os seus pecados uns aos outros e orar pelos outros, para que ser curado.
 
-Pensem nisso: **Quem sabe fazer o bem, e conhece o que deve ser feito, mas não faz, este comete pecado**.
+Pense nisso: **Quem sabe fazer o bem, e conhece o que deve ser feito, mas não faz, este comete pecado**.
 
-Você que diz: *“Hoje ou amanhã iremos para esta ou aquela cidade, passaremos um ano ali, fazendo negócios e ganhando dinheiro”*. Você nem mesmo sabe o que acontecerá amanhã com sua vida! Em vez disso, você deveria dizer: *“Se o Senhor quiser, estaremos vivos e faremos isto ou aquilo”*.
+Se você diz: *“Hoje ou amanhã iremos para esta ou aquela cidade, passaremos um ano ali, fazendo negócios e ganhando dinheiro”*. Você nem mesmo sabe o que acontecerá amanhã com sua vida! Em vez disso, você deveria dizer: *“Se o Senhor quiser, estaremos vivos e faremos isto ou aquilo”*.
 
-Se alguém está sofrendo? Ele deve orar.
+Se estiver sofrendo? Deve orar.
 
-Alguém está feliz, e alegre? Deve cantar hinos de louvor.
+Se estiver feliz ou alegre? Deve cantar hinos de louvor.
 
-Se alguém estiver doente, que chame os presbíteros da igreja, para orarem por ele e colocarem óleo sobre sua cabeça, o unjindo, em nome do Senhor. Essa oração, feita com fé, curará o doente. O Senhor lhe dará saúde e perdoará os pecados que tiver cometido.
+Se estiver doente, que chame os presbíteros da igreja, para orarem por você e para colocarem óleo sobre sua cabeça, o unjindo, em nome do Senhor. Essa oração, feita com fé, curará o doente. O Senhor lhe dará saúde e perdoará os pecados que tiver cometido.
 
 A oração de uma pessoa obediente a Deus é poderosa e eficaz.
 
-Se algum de vocês se desviar da verdade, e alguém o trouxer de volta para o bom caminho, lembrem-se disso: **Quem fizer com que um pecador deixe o seu mau caminho, e seus erros, salvará a alma dessa pessoa da morte e fará com que uma multidão de pecados sejam perdoados, e os cobrirá.**
+Se alguém se desviar da verdade, e você o trouxer de volta para o bom caminho, lembre-se disso: **Quem fizer com que um pecador deixe o seu mau caminho, e seus erros, salvará a alma dessa pessoa da morte e fará com que uma multidão de pecados sejam perdoados, e os cobrirá.**
 
 # Carta para crianças
 
