@@ -2,15 +2,15 @@
 
 #A submissão a Deus
 
-De onde vêm as brigas e discussões que há entre vocês? Elas vêm das paixões que dominam vocês<font = color="darkgray">, constantemente lutando dentro do corpo de vocês</font>.
+De onde vêm as brigas e discussões que há entre vocês? Elas vêm das paixões que dominam vocês<font = color="gray">, constantemente lutando dentro do corpo de vocês</font>.
 
 Vocês cobiçam alguma coisa, mas como não podem ter o que querem; invejam e matam. Vocês vivem lutando<font color="gray">, processando </font> e brigando.
 
 **Vocês não conseguem o que querem porque não pedem a Deus. E e quando pedem, não recebem nada porque pedem por motivos errados. Vocês pedem para gastar em seus próprios prazeres**.
 
-Gente adúltera <font color="darkgray">e infiel</font>! Vocês não sabem que a amando o mundo estão odiando a Deus? Quem quer ser amigo do mundo se torna inimigo de Deus.
+Gente adúltera <font color="gray">e infiel</font>! Vocês não sabem que a amando o mundo estão odiando a Deus? Quem quer ser amigo do mundo se torna inimigo de Deus.
 
-Ou vocês acham que é sem razão que a Escritura diz: <cite>“Deus quer que o Espírito que Ele colocou em vós viva somente para Ele”? <font color="blue">Não acham</font> <font color="darkgray">que Deus tem fortes ciúmes pelo Espírito que Ele fez habitar em nós?</font> <font color="blue">Ou ainda</font> <font color="darkgray">que o Espírito que Ele fez habitar em nós nos ama zelozamente?</font></cite>[^1]
+Ou vocês acham que é sem razão que a Escritura diz: <cite>“Deus quer que o Espírito que Ele colocou em vós viva somente para Ele”? <font color="blue">Não acham</font> <font color="gray">que Deus tem fortes ciúmes pelo Espírito que Ele fez habitar em nós?</font> <font color="blue">Ou ainda</font> <font color="gray">que o Espírito que Ele fez habitar em nós nos ama zelozamente?</font></cite>[^1]
 
 <font color="gray">Você pode pensar não ter alternativa, mas</font> Deus, em sua bondade, nos dá graça maior <font color="gray">quando nos afastamos de nossos próprios interesses</font>. Por isso a Escritura diz em Provérbios 3.34:
 
@@ -18,9 +18,9 @@ Ou vocês acham que é sem razão que a Escritura diz: <cite>“Deus quer que o 
 
 ##Devemos resistir às paixões
 
-Portanto, submetam-se ao único e verdadeiro Deus <font color="darkgray"> em obediência</font> e lutem contra o Diabo<font color="darkgray">, enfrentando os seus planos,</font> que ele fugirá de vocês. Aproximem-se de Deus e Ele se aproximará de vocês!
+Portanto, submetam-se ao único e verdadeiro Deus <font color="gray"> em obediência</font> e lutem contra o Diabo<font color="gray">, enfrentando os seus planos,</font> que ele fugirá de vocês. Aproximem-se de Deus e Ele se aproximará de vocês!
 
-Pecadores, limpem as suas mãos![^2] E vocês que têm a mente dividida<font color="darkgray">ou são vacilantes</font><font color="blue">, querendo amar a Deus e aos seus desejos egoístas ao mesmo tempo</font>, purifiquem os seus corações! <font color="darkgray">Deixem de hipocrisia!</font>
+Pecadores, limpem as suas mãos![^2] E vocês que têm a mente dividida<font color="gray">ou são vacilantes</font><font color="blue">, querendo amar a Deus e aos seus desejos egoístas ao mesmo tempo</font>, purifiquem os seus corações! <font color="gray">Deixem de hipocrisia!</font>
 
 Agora é tempo de se entristecer, lamentar e chorar! Troquem o riso por choro e a sua alegria por tristeza. Humilhem-se diante do Senhor, e Ele os colocará numa posição de honra.
 
@@ -30,7 +30,7 @@ Não falem mal uns dos outros. Quem fala mal do outro, ou o julga, fala contra a
 
 ##Deixe Deus planejar a sua vida
 
-Você que diz: *“Hoje ou amanhã iremos para esta ou aquela cidade, passaremos um ano ali, fazendo negócios e ganhando dinheiro”*. Você nem mesmo sabe o que acontecerá amanhã com sua vida![^3] Em vez disso, você deveria dizer: *“Se o Senhor quiser, estaremos vivos e faremos isto ou aquilo”*. Suas palavras indicam uma arrogância <font color="darkgray">, e presunção, que não reconhece Aquele que controla o universo</font>, e este tipo de orgulho é a essência do mal.
+Você que diz: *“Hoje ou amanhã iremos para esta ou aquela cidade, passaremos um ano ali, fazendo negócios e ganhando dinheiro”*. Você nem mesmo sabe o que acontecerá amanhã com sua vida![^3] Em vez disso, você deveria dizer: *“Se o Senhor quiser, estaremos vivos e faremos isto ou aquilo”*. Suas palavras indicam uma arrogância <font color="gray">, e presunção, que não reconhece Aquele que controla o universo</font>, e este tipo de orgulho é a essência do mal.
 
 Pensem nisso: **Se você sabe a maneira certa de viver, mas não faz, comete pecado – simples assim**.
 
