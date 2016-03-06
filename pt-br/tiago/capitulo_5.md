@@ -2,9 +2,9 @@
 
 ##O dinheiro mal adquirido traz uma maldição
 
-Ricos, escutem! Vocês devem chorar e se lamentar pelas desgraças que vocês vão sofrer. Suas riquezas estão podres, e as suas roupas finas comidas pelas traças. Tanto o ouro quanto a prata de vocês enferrujaram e esta ferrugem vai servir de prova contra vocês mesmos, e como o fogo, devorará a sua carne.
+Ricos, escutem! Vocês devem chorar e se lamentar pelas desgraças que vocês vão sofrer. Seu estoque de prata e ouro está manchado e corroído, e essa ferrugem vai ficar até o julgamento final e servirá de prova contra você. Ele devorará sua carne como fogo <font color="gray">e se tornará uma lembrança permanente e dolorosa</font> de que acumulou sua riqueza através destes últimos dias.
 
-Vocês têm acumulado bens inutilmente, pois estes são os últimos dias. Os trabalhadores que ceifaram os seus campos, e não receberam seus salários, estão clamando contra vocês. E o lamento destes trabalhadores chegou aos ouvidos do Senhor dos Exércitos.
+Vocês têm acumulado bens inutilmente, pois estes são os últimos dias. Os trabalhadores que ceifaram os seus campos, e não receberam seus salários, estão clamando contra vocês<font color="gray">, pedindo que seja feita justiça</font>. O lamento destes trabalhadores chegou aos ouvidos do Senhor dos Exércitos.
 
 Vocês têm tido uma vida de luxo e prazeres aqui na terra, desfrutando prazeres e estão  gordos como gado pronto para o matadouro. Vocês têm condenado e matado os justos <font color="darkgray">e inocentes</font>, e eles não podem fazer nada contra vocês.
 
@@ -36,6 +36,6 @@ A oração de uma pessoa obediente a Deus é poderosa e eficaz. O profeta Elias 
 
 ##O que resulta da conversão de um pecador
 
-Se algum de vocês se desviar da verdade, e alguém o trouxer de volta para o bom caminho, lembrem-se disso: **Quem fizer com que um pecador deixe o seu mau caminho<font color="darkgray">, e seus erros,</font> salvará a alma dessa pessoa da morte e fará com que uma multidão de pecados sejam perdoados<font color="darkgray">, e os cobrirá</font>.**
+Se algum de vocês se desviar da verdade<font color="gray">, ou se rebelar contra Deus,</font>, e alguém o trouxer de volta para o bom caminho, lembrem-se disso: **Quem fizer com que um pecador deixe o seu mau caminho<font color="darkgray">, e seus erros,</font> salvará a alma dessa pessoa da morte e fará com que uma multidão de pecados sejam perdoados<font color="darkgray">, e os cobrirá</font>.**
 
 [^1] Vejam como o agricultor aguarda que a terra produza a colheita e como espera com paciência até virem as primeiras e as ultimas chuvas, do outono e do inverno.
