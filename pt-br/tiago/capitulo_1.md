@@ -2,7 +2,7 @@
 
 ##Provas e tentações
 
-Considerem como motivo de grande alegria o fato de passarem por diversos tipos de provações <font color="darkgray">ou aflições</font>. Porque quando a sua fé é colocada à prova e vence, ela produz perseverança. Perseverança que os torna maduros, íntegros<font color="darkgray"> e corretos</font>, quando completa, sem que lhes falte coisa alguma.
+Não fujam dos diversos tipos de provações <font color="darkgray">ou aflições</font>. <font color="gray">Por mais difíceis que sejam, no fim vocês vão</font> encontrar nisso motivo de grande alegria porque sua fé vai crescer na pressão e lhes ensinará a perseverança. Esta perseverança os torna maduros, íntegros<font color="darkgray"> e corretos</font>, quando completa, sem que lhes falte coisa alguma.
 
 ##Peça por sabedoria
 
@@ -14,11 +14,11 @@ Quem tem condição humilde deve se orgulhar quando Deus lhe der riquezas e posi
 
 #A origem do pecado
 
-Feliz é o homem que continua fiel mesmo na a provação<font color="darkgray"> ou aflição</font>. Porque, depois de ter sido aprovado receberá como prêmio a vida[^1] que Deus prometeu aos que O amam[^2].
+Feliz é o homem que continua fiel mesmo na a provação<font color="darkgray"> ou aflição</font>. Porque, em seu devido tempo receberá como prêmio a vida[^1] que Deus prometeu aos que O amam[^2].
 
-Ao ser tentado não diga: “Esta tentação vem de Deus”. Pois Deus não pode ser tentado pelo mal e Ele mesmo não tenta ninguém. Mas cada um é tentado pelos seus próprios maus desejos <font color="darkgray">e cobiça</font>, quando estes o atraem e seduzem. Estes maus desejos fazem com que o pecado seja concebido e nasça; e o pecado, após consumado, produz a morte.
+Ao ser tentado não diga: “Esta tentação vem de Deus”. Pois Deus não pode ser tentado pelo mal e Ele mesmo não tenta ninguém. Mas cada um é tentado quando é atraído e seduzido pelos seus próprios maus desejos <font color="darkgray">e cobiça</font>, e estes maus desejos tornam-se o foco e tomam controle, fazem com que o pecado seja concebido e nasça. Quando o pecado é consumado produz a morte.
 
-Não se engananem. Tudo o que é bom e todo dom que é perfeito vem de Deus, que não muda e não é inconstante[^5]. Ele decidiu<font color="darkgray">, por sua própria vontade,</font> nos tornar seus filhos pela pela palavra da verdade, para que pudéssemos ocupar o primeiro, e mais importante, lugar[^6] entre tudo o que Ele criou.
+Não se engananem. Tudo o que é bom e todo dom que é perfeito vem de Deus, que não muda e não é inconstante[^5]. Nós temos um papel especial em seus planos. Ele nos chama para a vida pela sua palavra da verdade, para que possamos mostrar ao resto de sua criação<font color="gray">, e criaturas, a sua bondade e amor</font>.
 
 [^1] Coroa da vida
 
@@ -30,11 +30,9 @@ Não se engananem. Tudo o que é bom e todo dom que é perfeito vem de Deus, que
 
 [^5] Nele não há variação nem qualquer mudança que produza sombra.
 
-[^6] Primeiros frutos
-
 ##Ouvir e praticar a palavra de Deus
 
-Estejam prontos para ouvir, porém demorem para falar e ficarem irados. Pois a ira humana não leva à vida justa que Deus quer que tenhamos.
+Estejam prontos para ouvir, porém contenham seu desejo de falar e ficarem irados. Pois a ira humana <font color="gray"> é algo fútil, que</font> não leva à vida justa que Deus quer que tenhamos.
 
 Assim, livrem-se de toda impureza moral[^7], deixem de praticar as coisas más que tanto os influenciam <font color="darkgray">e também todo excesso de malícia</font>. Aceitem com humildade a palavra que Deus implantou em vocês, que é poderosa para salvar as suas almas.
 
@@ -42,7 +40,7 @@ Vocês devem praticar o que a mensagem ensina e não devem somente ouvir, engana
 
 ##A religião que é aceita por Deus
 
-Se alguém pensa ser religioso? Se não soube controlar a sua língua, engana a si mesmo e sua religião não vale de nada!
+Se alguém pensa ser religioso? Se não sabe controlar a sua língua, engana a si mesmo, pois sua boca expõe o seu coração e sua religião não vale de nada!
 
 A religião pura e verdadeira que Deus aceita é esta:
 * Cuidar dos órfãos e das viúvas nas suas aflições
