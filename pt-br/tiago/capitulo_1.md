@@ -2,11 +2,11 @@
 
 ##Provas e tentações
 
-Não fujam dos diversos tipos de provações <font color="darkgray">ou aflições</font>. <font color="gray">Por mais difíceis que sejam, no fim vocês vão</font> encontrar nisso motivo de grande alegria porque sua fé vai crescer na pressão e lhes ensinará a perseverança. Esta perseverança os torna maduros, íntegros<font color="darkgray"> e corretos</font>, quando completa, sem que lhes falte coisa alguma.
+Não fujam dos diversos tipos de provações <font color="gray">ou aflições</font>. <font color="gray">Por mais difíceis que sejam, no fim vocês vão</font> encontrar nisso motivo de grande alegria porque sua fé vai crescer na pressão e lhes ensinará a perseverança. Esta perseverança os torna maduros, íntegros<font color="gray"> e corretos</font>, quando completa, sem que lhes falte coisa alguma.
 
 ##Peça por sabedoria
 
-Se algum de vocês sente falta de sabedoria, peça-a a Deus, <font color="darkgray">que é generoso e</font> dá a todos livremente, de boa vontade; e ela lhe será concedida. Mas peça com fé, sem duvidar de modo nenhum. E aquele que duvida[^3] não ache que receberá coisa alguma do Senhor, pois tem a mente dividida e é inconstante <font color="darkgray">e instável</font> em tudo o que faz.
+Se algum de vocês sente falta de sabedoria, peça-a a Deus, <font color="gray">que é generoso e</font> dá a todos livremente, de boa vontade; e ela lhe será concedida. Mas peça com fé, sem duvidar de modo nenhum. E aquele que duvida[^3] não ache que receberá coisa alguma do Senhor, pois tem a mente dividida e é inconstante <font color="gray">e instável</font> em tudo o que faz.
 
 ##As circunstâncias externas não perduram
 
@@ -14,9 +14,9 @@ Quem tem condição humilde deve se orgulhar quando Deus lhe der riquezas e posi
 
 #A origem do pecado
 
-Feliz é o homem que continua fiel mesmo na a provação<font color="darkgray"> ou aflição</font>. Porque, em seu devido tempo receberá como prêmio a vida[^1] que Deus prometeu aos que O amam[^2].
+Feliz é o homem que continua fiel mesmo na a provação<font color="gray"> ou aflição</font>. Porque, em seu devido tempo receberá como prêmio a vida[^1] que Deus prometeu aos que O amam[^2].
 
-Ao ser tentado não diga: “Esta tentação vem de Deus”. Pois Deus não pode ser tentado pelo mal e Ele mesmo não tenta ninguém. Mas cada um é tentado quando é atraído e seduzido pelos seus próprios maus desejos <font color="darkgray">e cobiça</font>, e estes maus desejos tornam-se o foco e tomam controle, fazem com que o pecado seja concebido e nasça. Quando o pecado é consumado produz a morte.
+Ao ser tentado não diga: “Esta tentação vem de Deus”. Pois Deus não pode ser tentado pelo mal e Ele mesmo não tenta ninguém. Mas cada um é tentado quando é atraído e seduzido pelos seus próprios maus desejos <font color="gray">e cobiça</font>, e estes maus desejos tornam-se o foco e tomam controle, fazem com que o pecado seja concebido e nasça. Quando o pecado é consumado produz a morte.
 
 Não se engananem. Tudo o que é bom e todo dom que é perfeito vem de Deus, que não muda e não é inconstante[^5]. Nós temos um papel especial em seus planos. Ele nos chama para a vida pela sua palavra da verdade, para que possamos mostrar ao resto de sua criação<font color="gray">, e criaturas, a sua bondade e amor</font>.
 
@@ -34,7 +34,7 @@ Não se engananem. Tudo o que é bom e todo dom que é perfeito vem de Deus, que
 
 Estejam prontos para ouvir, porém contenham seu desejo de falar e ficarem irados. Pois a ira humana <font color="gray"> é algo fútil, que</font> não leva à vida justa que Deus quer que tenhamos.
 
-Assim, livrem-se de toda impureza moral[^7], deixem de praticar as coisas más que tanto os influenciam <font color="darkgray">e também todo excesso de malícia</font>. Aceitem com humildade a palavra que Deus implantou em vocês, que é poderosa para salvar as suas almas.
+Assim, livrem-se de toda impureza moral[^7], deixem de praticar as coisas más que tanto os influenciam <font color="gray">e também todo excesso de malícia</font>. Aceitem com humildade a palavra que Deus implantou em vocês, que é poderosa para salvar as suas almas.
 
 Vocês devem praticar o que a mensagem ensina e não devem somente ouvir, enganando a vocês mesmos[^8]. Mas se alguém observar atentamente a lei perfeita, que traz liberdade[^9], e continuar firme na sua prática, não apenas como um ouvinte negligente mas como um praticante ativo, Deus vai abençoar tudo o que essa pessoa fizer.
 
