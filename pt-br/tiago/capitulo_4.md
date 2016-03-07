@@ -12,7 +12,7 @@ Gente adúltera <font color="gray">e infiel</font>! Vocês não sabem que a aman
 
 Ou vocês acham que é sem razão que a Escritura diz: <cite>“Deus quer que o Espírito que Ele colocou em vós viva somente para Ele”? <font color="blue">Não acham</font> <font color="gray">que Deus tem fortes ciúmes pelo Espírito que Ele fez habitar em nós?</font> <font color="blue">Ou ainda</font> <font color="gray">que o Espírito que Ele fez habitar em nós nos ama zelozamente?</font></cite>[^1]
 
-<font color="gray">Você pode pensar não ter alternativa, mas</font> Deus, em sua bondade, nos dá graça maior <font color="gray">quando nos afastamos de nossos próprios interesses</font>. Por isso a Escritura diz em Provérbios 3.34:
+Você pode pensar não ter alternativa, mas Deus nos dá graça maior, em sua bondade, <font color="gray">quando nos afastamos de nossos próprios interesses</font>. Por isso a Escritura diz em Provérbios 3.34:
 
 > “Deus é contra os orgulhosos, mas é bondoso para com os humildes”.
 
