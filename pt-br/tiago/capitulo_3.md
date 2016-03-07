@@ -4,7 +4,7 @@
 
 Poucos entre vocês devem se tornar mestres na Igreja, pois nós, os que ensinamos, seremos julgados com mais rigor do que os outros.
 
-Todos nós cometemos erros<font color="gray">, e pecamos,</font> de muitas maneiras. Se uma pessoa não tropeça em suas palavras <font color="gray">e nunca fala palavras ofensivas ou de baixo calão, ou mesmo grita com ira</font>, é uma pessoa perfeita e é capaz de dominar todo o seu corpo também.
+Todos nós cometemos erros<font color="gray">, e pecamos,</font> de muitas maneiras. Se alguém não tropeça em suas palavras <font color="gray">e nunca fala palavras ofensivas ou de baixo calão, ou mesmo grita com ira</font>, é uma pessoa perfeita e é capaz de dominar todo o seu corpo também.
 
 A língua é um pequeno órgão do corpo, mas se vangloria de fazer grandes coisas[^1]. A língua é um mundo de iniquidade. Colocada entre os membros do nosso corpo, contamina a pessoa por inteiro[^2]. Ela incendeia todo o curso de sua vida, sendo ela mesma incendiada pelo inferno.
 
