@@ -20,7 +20,7 @@ Vocês ouviram sobre a paciência de Jó e sabem como no final Deus o abençoou.
 
 ##Acerca de juramentos
 
-Acima de tudo, quando prometerem alguma coisa, não jurem pelo céu, nem pela terra, nem por nada mais. **Diga somente ”sim”, quando for sim, e “não”, quando for não, para que Deus não os condene**.
+Acima de tudo, quando prometerem alguma coisa, não jurem pelo céu, nem pela terra, nem por nada mais. **Diga somente ”*sim*”, quando for sim, e “*não*”, quando for não, para que Deus não os condene**.
 
 ##A Oração da Fé
 
@@ -36,6 +36,6 @@ A oração de uma pessoa obediente a Deus é poderosa e eficaz. O profeta Elias 
 
 ##O que resulta da conversão de um pecador
 
-Se algum de vocês se desviar da verdade<font color="gray">, ou se rebelar contra Deus,</font>, e alguém o trouxer de volta para o bom caminho, lembrem-se disso: **Quem fizer com que um pecador deixe o seu mau caminho<font color="gray">, e seus erros,</font> salvará a alma dessa pessoa da morte e fará com que uma multidão de pecados sejam perdoados<font color="gray">, e os cobrirá</font>.**
+Se algum de vocês se desviar da verdade<font color="gray">, ou se rebelar contra Deus,</font> e alguém o trouxer de volta para o bom caminho, lembrem-se disso: **Quem fizer com que um pecador deixe o seu mau caminho<font color="gray">, e seus erros,</font> salvará a alma dessa pessoa da morte e fará com que uma multidão de pecados sejam perdoados<font color="gray">, e os cobrirá</font>.**
 
 [^1] Vejam como o agricultor aguarda que a terra produza a colheita e como espera com paciência até virem as primeiras e as ultimas chuvas, do outono e do inverno.

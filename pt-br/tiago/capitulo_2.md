@@ -16,7 +16,7 @@ Se obedecerem às leis de Deus estarão agindo corretamente, assim como está es
 
 Mas, se tratarem os outros com parcialidade<font color="gray">, dando atenção aqueles que podem lhes ajudar de alguma forma e ignorando os que parecem precisar de todo tipo de ajuda</font>, estarão pecando e serão considerados culpados por quebrarem a lei.
 
-Se uma pessoa conegue seguir <font color="gray">e obedecer</font> a toda a lei, mas falha em obecer em apenas um único ponto, se torna culpada de quebrar todos os outros. Pois o mesmo Deus que disse: <cite>“Não adulterarás”</cite>[^2] também disse: <cite>“Não matarás”</cite>[^3]. Se você não comete adultério mas comete assassinato você se torna culpado de quebrar a lei<font color="gray">, não importa como você veja isso</font>.
+Se uma pessoa conegue seguir <font color="gray">e obedecer</font> a toda a lei, mas falha em obecer em apenas um único ponto, se torna culpada de quebrar todos os outros. Pois o mesmo Deus que disse: <cite>“Não adulterarás”</cite>[^2] também disse: <cite>“Não matarás”</cite>[^3]. Se você não comete adultério mas comete assassinato você se torna culpado de quebrar a lei<font color="gray">, não importa o que você pense sobre isso</font>.
 
 Falem e vivam como quem será julgado um dia. A lei que julga também nos dá a liberdade[^4], mas não esperem receber misericórdia do julgamento de Deus se vocês não mostrarem misericórida[^5]. Mas as pessoas que tiveram misericórdia dos outros não serão condenados no Dia do Juízo Final.
 

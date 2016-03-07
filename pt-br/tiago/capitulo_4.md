@@ -4,9 +4,9 @@
 
 De onde vêm as brigas e discussões que há entre vocês? Elas vêm das paixões que dominam vocês<font = color="gray">, constantemente lutando dentro do corpo de vocês</font>.
 
-Vocês cobiçam alguma coisa, mas como não podem ter o que querem; invejam e matam. Vocês vivem lutando<font color="gray">, processando </font> e brigando.
+Vocês cobiçam alguma coisa que não podem ter, então invejam e matam para obtê-la. Vocês vivem lutando<font color="gray">, processando </font> e brigando.
 
-**Vocês não conseguem o que querem porque não pedem a Deus. E e quando pedem, não recebem nada porque pedem por motivos errados. Vocês pedem para gastar em seus próprios prazeres**.
+**Vocês não conseguem o que querem porque não pedem a Deus. E quando pedem, não recebem nada porque pedem por motivos errados. Vocês pedem para gastar em seus próprios prazeres**.
 
 Gente adúltera <font color="gray">e infiel</font>! Vocês não sabem que a amando o mundo estão odiando a Deus? Quem quer ser amigo do mundo se torna inimigo de Deus.
 
@@ -32,7 +32,7 @@ Não falem mal uns dos outros. Quem fala mal do outro, ou o julga, fala contra a
 
 Você que diz: *“Hoje ou amanhã iremos para esta ou aquela cidade, passaremos um ano ali, fazendo negócios e ganhando dinheiro”*. Você nem mesmo sabe o que acontecerá amanhã com sua vida![^3] Em vez disso, você deveria dizer: *“Se o Senhor quiser, estaremos vivos e faremos isto ou aquilo”*. Suas palavras indicam uma arrogância <font color="gray">, e presunção, que não reconhece Aquele que controla o universo</font>, e este tipo de orgulho é a essência do mal.
 
-Pensem nisso: **Se você sabe a maneira certa de viver, mas não faz, comete pecado – simples assim**.
+Pensem nisso: **Se você sabe a maneira certa de viver, mas não a pratica, comete pecado – simples assim**.
 
 [^1] Já em Êxodo 20.5 diz: <cite>“Não se ajoelhe diante de ídolos, nem os adore, pois eu, o Senhor, sou o seu Deus e não tolero outros deuses. Eu castigo aqueles que me odeiam, até os seus bisnetos e trinetos”</cite><sup>NTLH</sup>  ou <cite>“Não te prostrarás diante desses deuses e não os servirás, porquanto Eu, o SENHOR teu Deus, sou um Deus ciumento, que puno a iniquidade dos pais sobre os filhos até a terceira e quarta geração dos que me odeiam”</cite><sup>KJA</sup>
 
