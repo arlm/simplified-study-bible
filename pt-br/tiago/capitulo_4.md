@@ -32,7 +32,7 @@ Não falem mal uns dos outros. Quem fala mal do outro, ou o julga, fala contra a
 
 Você que diz: *“Hoje ou amanhã iremos para esta ou aquela cidade, passaremos um ano ali, fazendo negócios e ganhando dinheiro”*. Você nem mesmo sabe o que acontecerá amanhã com sua vida![^3] Em vez disso, você deveria dizer: *“Se o Senhor quiser, estaremos vivos e faremos isto ou aquilo”*. Suas palavras indicam uma arrogância <font color="gray">, e presunção, que não reconhece Aquele que controla o universo</font>, e este tipo de orgulho é a essência do mal.
 
-Pensem nisso: **Se você sabe a maneira certa de viver, mas não faz, comete pecado – simples assim**.
+Pensem nisso: **Se você sabe a maneira certa de viver, mas não a pratica, comete pecado – simples assim**.
 
 [^1] Já em Êxodo 20.5 diz: <cite>“Não se ajoelhe diante de ídolos, nem os adore, pois eu, o Senhor, sou o seu Deus e não tolero outros deuses. Eu castigo aqueles que me odeiam, até os seus bisnetos e trinetos”</cite><sup>NTLH</sup>  ou <cite>“Não te prostrarás diante desses deuses e não os servirás, porquanto Eu, o SENHOR teu Deus, sou um Deus ciumento, que puno a iniquidade dos pais sobre os filhos até a terceira e quarta geração dos que me odeiam”</cite><sup>KJA</sup>
 
