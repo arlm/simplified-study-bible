@@ -10,7 +10,7 @@ Se algum de vocês sente falta de sabedoria, peça-a a Deus, <font color="gray">
 
 ##As circunstâncias externas não perduram
 
-Quem tem condição humilde deve se orgulhar quando Deus lhe der riquezas e posição elevada, já o rico[^4] deve sentir o mesmo quando Deus o fizer humilde. Pois o rico desaparecerá, juntamente com os seus negócios.
+Quem tem condição humilde deve se orgulhar quando Deus lhe der riquezas e posição elevada, já o rico[^4] deve experimentar a humilde realidade de que é um mero mortal e que irá desaparecer, juntamente com os seus negócios.
 
 #A origem do pecado
 
