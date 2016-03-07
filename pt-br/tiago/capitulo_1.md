@@ -8,15 +8,15 @@ Não fujam dos diversos tipos de provações <font color="gray">ou aflições</f
 
 Se algum de vocês sente falta de sabedoria, peça-a a Deus, <font color="gray">que é generoso e</font> dá a todos livremente, de boa vontade; e ela lhe será concedida. Mas peça com fé, sem duvidar de modo nenhum. E aquele que duvida[^3] não ache que receberá coisa alguma do Senhor, pois tem a mente dividida e é inconstante <font color="gray">e instável</font> em tudo o que faz.
 
+Feliz é o homem que continua fiel mesmo na a provação<font color="gray"> ou aflição</font>. Porque, em seu devido tempo receberá como prêmio a vida[^1] que Deus prometeu aos que O amam[^2].
+
 ##As circunstâncias externas não perduram
 
 Quem tem condição humilde deve se orgulhar quando Deus lhe der riquezas e posição elevada, já o rico[^4] deve experimentar a humilde realidade de que é um mero mortal e que irá desaparecer, juntamente com os seus negócios.
 
 #A origem do pecado
 
-Feliz é o homem que continua fiel mesmo na a provação<font color="gray"> ou aflição</font>. Porque, em seu devido tempo receberá como prêmio a vida[^1] que Deus prometeu aos que O amam[^2].
-
-Ao ser tentado não diga: “Esta tentação vem de Deus”. Pois Deus não pode ser tentado pelo mal e Ele mesmo não tenta ninguém. Mas cada um é tentado quando é atraído e seduzido pelos seus próprios maus desejos <font color="gray">e cobiça</font>, e estes maus desejos tornam-se o foco e tomam controle, fazem com que o pecado seja concebido e nasça. Quando o pecado é consumado produz a morte.
+Ao ser tentado não diga: “Esta tentação vem de Deus”. Pois Deus não pode ser tentado pelo mal e Ele mesmo não tenta ninguém. Mas cada um é tentado quando é atraído e seduzido pelos seus próprios maus desejos <font color="gray">e cobiça</font>, e estes maus desejos tornam-se o foco e tomam controle <font color="blue">de sua vida</font>, fazendo com que o pecado nasça. Quando o pecado é consumado produz a morte.
 
 Não se engananem. Tudo o que é bom e todo dom que é perfeito vem de Deus, que não muda e não é inconstante[^5]. Nós temos um papel especial em seus planos. Ele nos chama para a vida pela sua palavra da verdade, para que possamos mostrar ao resto de sua criação<font color="gray">, e criaturas, a sua bondade e amor</font>.
 
