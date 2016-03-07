@@ -4,9 +4,9 @@
 
 De onde vêm as brigas e discussões que há entre vocês? Elas vêm das paixões que dominam vocês<font = color="gray">, constantemente lutando dentro do corpo de vocês</font>.
 
-Vocês cobiçam alguma coisa, mas como não podem ter o que querem; invejam e matam. Vocês vivem lutando<font color="gray">, processando </font> e brigando.
+Vocês cobiçam alguma coisa que não podem ter, então invejam e matam para obtê-la. Vocês vivem lutando<font color="gray">, processando </font> e brigando.
 
-**Vocês não conseguem o que querem porque não pedem a Deus. E e quando pedem, não recebem nada porque pedem por motivos errados. Vocês pedem para gastar em seus próprios prazeres**.
+**Vocês não conseguem o que querem porque não pedem a Deus. E quando pedem, não recebem nada porque pedem por motivos errados. Vocês pedem para gastar em seus próprios prazeres**.
 
 Gente adúltera <font color="gray">e infiel</font>! Vocês não sabem que a amando o mundo estão odiando a Deus? Quem quer ser amigo do mundo se torna inimigo de Deus.
 
