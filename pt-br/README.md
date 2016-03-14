@@ -20,7 +20,9 @@ Todo material aqui presente teve como fonte de leitura, e pesquisa, as seguintes
 * Tradução Brasileira (**TB10**) &mdash; <small>&copy; Sociedade Bíblica do Brasil, 1917 <sub>[Wikipedia](https://pt.wikipedia.org/wiki/Tradu%C3%A7%C3%A3o_Brasileira)</sub></small>
 * Novo Testamento Perjanjian: Versão Fácil de Ler (**VFL**) &mdash; <small>&copy; World Bible Translation Center Inc., 1999 <sub>[Site](http://www.wbtc.org/)</sub></small>
 * Nova Tradução na Linguagem de Hoje (**NTLH**) &mdash; <small>&copy; Sociedade Bíblica do Brasil, 2000 <sub>[Site](http://www.sbb.org.br/)</sub></small>
-* The Voice Bible (**Voice**) &mdash; <small>Thomas Nelson Inc., 2012 <sub>[Site](http://www.hearthevoice.com/)</sub></small> 
+* The Voice Bible (**Voice**) &mdash; <small>Thomas Nelson Inc., 2012 <sub>[Site](http://www.hearthevoice.com/)</sub></small>
+* O Livro (**OL**) &mdash; <small>&copy; Biblica Inc., 2000 <sub>[Site](http://www.biblica.com/)</sub></small> 
+
 
 [^1] Tiago 1.5-6
 
