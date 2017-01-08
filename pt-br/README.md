@@ -8,9 +8,8 @@ O texto comum é uma paráfrase e simplificação do texto bíblico lido por mim
 
 ## Como ler este livro
 
-Você pode ler e meditar diáriamente neste livro, mas é de grande valia que peça a Deus por entendimento[^1], clareza e sabedoria para tornar útil e viva estas palavras em sua vida. Você pode fazer se abrigar num local calmo para ler e fazer esta oração antes de ler:
-
-> Deus de amor, torna as trevas em liz perante mim.[^1] Que meus olhos sejam iluminados com Tua Palavra.[^2] Que todas escamas sejam removidas de meus olhos.[^3] Revela a mim os segrefos e tudo o que está econdido.[^4] Abre meus olhos para que eu veja as maravilhas da Tua Palavra.[^5] Dá-me o espírito de sabedoria e revelação, e que os olhos de meu entendimento sejam esclarecidos.[^6] Revela as coisas que pertencem a mim.[^7] Que eu entenda Tuas parábolas; as palavras da sabedoria e Teus enigmas.[^8] Em nome de Jesus, o Cristo.[^9] Amém!
+Você pode ler e meditar diariamente neste livro, mas é de grande valia que peça a Deus por entendimento[^1], clareza e sabedoria para tornar útil e viva estas palavras em sua vida. Você pode fazer se abrigar num local calmo para ler e fazer esta oração antes de ler:
+> Deus de amor, torna as trevas em luz perante mim.[^1] Que meus olhos sejam iluminados com Tua Palavra.[^2] Que todas escamas sejam removidas de meus olhos.[^3] Me revela os segredos e tudo o que está escondido.[^4] Abre meus olhos para que eu veja as maravilhas da Tua Palavra.[^5] Me dá o espírito de sabedoria e revelação, e que os olhos de meu entendimento sejam esclarecidos.[^6] Revela as coisas que me pertencem.[^7] Que eu entenda Tuas parábolas; as palavras da sabedoria e Teus enigmas.[^8] Em nome de Jesus, o Cristo.[^9] Amém!
 
 ## Versões e traduções utilizadas
 
