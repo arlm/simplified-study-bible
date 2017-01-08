@@ -1,8 +1,10 @@
-# Carta para adultos
+# Carta de Tiago
+
+> Carta de Tiago, servo de Deus e do Senhor Jesus Cristo, às doze tribos de Israel espalhadas pela terra.
 
 Ao servo de Deus que lê esta carta,
 
-Não fuja dos diversos tipode de provações ou aflições. Por mais difíceis que sejam, no fim você vai encontrar nisso motivo de grande alegria porque sua fé vai crescer na pressão e lhe ensinará a perseverança. Esta perseverança o torna maduro, íntegro e correto, sem que lhe falte coisa alguma. Se você sentir falta de sabedoria necessária para esta jornada, tudo o que deve fazer é pedir Deus, que em sua generidade a concede livremente, de boa vontade. Mas peça com fé e devocão completa ao Senhor, sem duvidar de modo algum, pois aquele que duvida não receberá coisa alguma do Senhor.
+Não fuja dos diversos tipo de de provações ou aflições. Por mais difíceis que sejam, no fim você vai encontrar nisso motivo de grande alegria porque sua fé vai crescer na pressão e lhe ensinará a perseverança. Esta perseverança o torna maduro, íntegro e correto, sem que lhe falte coisa alguma. Se você sentir falta de sabedoria necessária para esta jornada, tudo o que deve fazer é pedir Deus, que em sua generosidade a concede livremente, de boa vontade. Mas peça com fé e devoção completa ao Senhor, sem duvidar de modo algum, pois aquele que duvida não receberá coisa alguma do Senhor.
 
 Seja paciente até a vinda do Senhor. Fortaleça o seu coração e não desanime, pois o Senhor virá logo.
 
@@ -10,7 +12,7 @@ Cada um é tentado quando é atraído e seduzido pelos seus próprios maus desej
 
 Portanto, submeta-se ao único e verdadeiro Deus em obediência e lute contra o Diabo, enfrentando os seus planos, que ele fugirá de você. Aproxime-se de Deus e Ele se aproximará de você!
 
-Você se acha sábio e instruído? Então seja um exemplo com seu coportamento e obras praticadas com a humildade e a mansidão que a sabedoria lhe dá.
+Você se acha sábio e instruído? Então seja um exemplo com seu comportamento e obras praticadas com a humildade e a mansidão que a sabedoria lhe dá.
 
 A sabedoria que vem de Deus é centrada em pureza, paz, gentileza, amor, moderação, compreensão, respeito, misericórdia e outros bons frutos. Também é imparcial e sincera, sem hipocrisia.
 
@@ -20,9 +22,9 @@ Tudo o que é bom, e todo dom que é perfeito, vem de Deus, que não muda e não
 
 Se você observar atentamente a lei perfeita e continuar firme na sua prática, não apenas como um ouvinte negligente mas como um praticante ativo, Deus vai abençoar tudo o que você fizer.
 
-Se você conseguir seguir a toda a lei, mas falhar em obecer em apenas um único ponto, se tornará culpado de quebrar todos os outros. Se você não comete adultério, mas comete assassinato, por exemplo, se torna culpado de quebrar a lei, não importa o que você pense sobre isso.
+Se você conseguir seguir a toda a lei, mas falhar em obedecer em apenas um único ponto, se tornará culpado de quebrar todos os outros. Se você não comete adultério, mas comete assassinato, por exemplo, se torna culpado de quebrar a lei, não importa o que você pense sobre isso.
 
-Fale e viva como quem será julgado um dia. A lei que julga também nos dá a liberdade, mas não espere receber misericórdia do julgamento de Deus se você não mostrar misericórida. Mas se tiver misericórdia dos outros não será condenado no Dia do Juízo Final.
+Fale e viva como quem será julgado um dia. A lei que julga também nos dá a liberdade, mas não espere receber misericórdia do julgamento de Deus se você não mostrar misericórdia. Mas se tiver misericórdia dos outros não será condenado no Dia do Juízo Final.
 
 Poucos entre vocês devem se tornar mestres na Igreja, pois nós, os que ensinamos, seremos julgados com mais rigor do que os outros.
 
@@ -46,7 +48,7 @@ A religião pura e verdadeira que Deus aceita é esta:
 * Livrar-se de toda impureza moral e excesso de malícia;
 * Deixar de praticar as coisas más;
 * Praticar o que a mensagem ensina e não somente ouvir;
-* Praticar obras que colaborem com a sua fée não a neguem;
+* Praticar obras que colaborem com a sua fé e não a neguem;
 * Ter um compromisso com Jesus não apenas em palavras e pensamento;
 * O humilde deve celebrar quando Deus lhe der riquezas e posição elevada;
 * O rico deve experimentar a humilde realidade de que é um mero mortal e irá desaparecer com fragilidade;
@@ -71,7 +73,7 @@ Se estiver sofrendo? Deve orar.
 
 Se estiver feliz ou alegre? Deve cantar hinos de louvor.
 
-Se estiver doente, que chame os presbíteros da igreja, para orarem por você e para colocarem óleo sobre sua cabeça, o unjindo, em nome do Senhor. Essa oração, feita com fé, curará o doente. O Senhor lhe dará saúde e perdoará os pecados que tiver cometido.
+Se estiver doente, que chame os presbíteros da igreja, para orarem por você e para colocarem óleo sobre sua cabeça, o ungindo, em nome do Senhor. Essa oração, feita com fé, curará o doente. O Senhor lhe dará saúde e perdoará os pecados que tiver cometido.
 
 A oração de uma pessoa obediente a Deus é poderosa e eficaz.
 
