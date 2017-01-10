@@ -2,11 +2,11 @@
 
 Minhas calorosas saudações ao servo de Deus e do Senhor Jesus Cristo que lê esta carta.
 
-Não fuja dos diversos tipo de de provações ou aflições. Por mais difíceis que sejam, no fim você vai encontrar nisso motivo de grande alegria porque sua fé vai crescer na pressão e lhe ensinará a perseverança. Esta perseverança o torna maduro, íntegro e correto, sem que lhe falte coisa alguma. Se você sentir falta de sabedoria necessária para esta jornada, tudo o que deve fazer é pedir Deus, que em sua generosidade a concede livremente, de boa vontade. Mas peça com fé e devoção completa ao Senhor, sem duvidar de modo algum, pois aquele que duvida não receberá coisa alguma do Senhor.
+Não fuja dos diversos tipo de de provações ou aflições. Por mais difíceis que sejam, no fim você vai encontrar nisso motivo de grande alegria porque sua fé vai crescer na pressão e lhe ensinará a perseverança. Esta perseverança o tornará maduro, íntegro e correto, sem que lhe falte coisa alguma. Se você sentir falta de sabedoria necessária para esta jornada, tudo o que deve fazer é pedir Deus, que em sua generosidade a concede livremente, de boa vontade. Mas peça com fé e devoção completa ao Senhor, sem duvidar de modo algum, pois aquele que duvida não receberá coisa alguma do Senhor.
 
 Seja paciente até a vinda do Senhor. Fortaleça o seu coração e não desanime, pois o Senhor virá logo.
 
-Cada um é tentado quando é atraído e seduzido pelos seus próprios maus desejos e cobiça, e estes maus desejos tornam-se o foco e tomam controle de sua vida, fazendo com que o pecado nasça. Quando o pecado é consumado, produz a morte. Lembre-se: Deus não pode ser tentado pelo mal e Ele mesmo não tenta ninguém.
+Cada um é tentado quando é atraído e seduzido pelos seus próprios maus desejos e cobiça, e estes maus desejos tornam-se o seu foco e tomam controle de sua vida, fazendo com que o pecado nasça. Quando o pecado é consumado, produz a morte. Lembre-se: Deus não pode ser tentado pelo mal e Ele mesmo não tenta ninguém.
 
 Portanto, submeta-se ao único e verdadeiro Deus em obediência e lute contra o Diabo, enfrentando os seus planos, que ele fugirá de você. Aproxime-se de Deus e Ele se aproximará de você!
 
@@ -28,7 +28,7 @@ Poucos entre vocês devem se tornar mestres na Igreja, pois nós, os que ensinam
 
 Todos nós cometemos erros, e pecamos, de muitas maneiras. Se alguém não tropeça em suas palavras e nunca fala palavras ofensivas ou de baixo calão, ou mesmo grita com ira, é uma pessoa perfeita e é capaz de dominar todo o seu corpo também.
 
-Você cobiça alguma coisa que não pode ter, então inveja e mata para obtê-la. Você vive lutando, processando e brigando.
+Você cobiça alguma coisa que não pode ter, então inveja e mata para obtê-la. Você vive lutando, processando os outros e brigando.
 
 **Você não consegue o que quer porque não pede a Deus. E quando pede, não recebe nada porque pede por motivos errados. Você pede para gastar em seus próprios prazeres**.
 
@@ -63,17 +63,17 @@ A religião pura e verdadeira que Deus aceita é esta:
 * Dizer somente “_sim_”, quando for sim, e “_não_”, quando for não;
 * Confessar os seus pecados uns aos outros e orar pelos outros, para que ser curado.
 
-Pense nisso: **\*Se você sabe a maneira certa de viver, mas não a pratica, comete pecado – simples assim**.
+Pense nisso: **\*Se você sabe a maneira certa de viver, mas não vive, comete pecado – simples assim**.
 
 Se você diz: _“Hoje ou amanhã iremos para esta ou aquela cidade, passaremos um ano ali, fazendo negócios e ganhando dinheiro”_. Você nem mesmo sabe o que acontecerá amanhã com sua vida! Em vez disso, você deveria dizer: _“Se o Senhor quiser, estaremos vivos e faremos isto ou aquilo”_.
 
-Se estiver sofrendo? Deve orar.
+Se estiver sofrendo: Deve orar.
 
-Se estiver feliz ou alegre? Deve cantar hinos de louvor.
+Se estiver feliz ou alegre: Deve cantar hinos de louvor.
 
-Se estiver doente, que chame os presbíteros da igreja, para orarem por você e para colocarem óleo sobre sua cabeça, o ungindo, em nome do Senhor. Essa oração, feita com fé, curará o doente. O Senhor lhe dará saúde e perdoará os pecados que tiver cometido.
+Se estiver doente: chame os presbíteros da igreja, para orarem por você e para colocarem óleo sobre sua cabeça, o ungindo, em nome do Senhor. Essa oração, feita com fé, curará o doente. O Senhor lhe dará saúde e perdoará os pecados que tiver cometido.
 
 A oração de uma pessoa obediente a Deus é poderosa e eficaz.
 
-Se alguém se desviar da verdade, ou se rebelar contra Deus, e você o trouxer de volta para o bom caminho, lembre-se disso: **Quem fizer com que um pecador deixe o seu mau caminho, e seus erros, salvará a alma dessa pessoa da morte e fará com que uma multidão de pecados sejam perdoados, e os cobrirá.**
+Se alguém se desviar da verdade, ou se rebelar contra Deus, e você o trouxer de volta para o bom caminho, lembre-se disso: **Quem fizer com que um pecador deixe o seu mau caminho, e seus erros, salvará a alma dessa pessoa da morte e fará com que uma multidão de pecados sejam perdoados, e cobrirá a dor e as consequências do pecado escondido.**
 
