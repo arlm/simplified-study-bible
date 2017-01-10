@@ -1,8 +1,6 @@
 # Carta de Tiago
 
-> Carta de Tiago, servo de Deus e do Senhor Jesus Cristo, às doze tribos de Israel espalhadas pela terra.
-
-Ao servo de Deus que lê esta carta,
+Minhas calorosas saudações ao servo de Deus e do Senhor Jesus Cristo que lê esta carta.
 
 Não fuja dos diversos tipo de de provações ou aflições. Por mais difíceis que sejam, no fim você vai encontrar nisso motivo de grande alegria porque sua fé vai crescer na pressão e lhe ensinará a perseverança. Esta perseverança o torna maduro, íntegro e correto, sem que lhe falte coisa alguma. Se você sentir falta de sabedoria necessária para esta jornada, tudo o que deve fazer é pedir Deus, que em sua generosidade a concede livremente, de boa vontade. Mas peça com fé e devoção completa ao Senhor, sem duvidar de modo algum, pois aquele que duvida não receberá coisa alguma do Senhor.
 
