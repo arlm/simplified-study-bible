@@ -21,7 +21,7 @@ Todo material aqui presente teve como fonte de leitura, e pesquisa, as seguintes
 * Nova Tradução na Linguagem de Hoje (**NTLH**) &mdash; <small>&copy; Sociedade Bíblica do Brasil, 2000 <sub>[Site](http://www.sbb.org.br/)</sub></small>
 * The Voice Bible (**Voice**) &mdash; <small>Thomas Nelson Inc., 2012 <sub>[Site](http://www.hearthevoice.com/)</sub></small>
 * O Livro (**OL**) &mdash; <small>&copy; Biblica Inc., 2000 <sub>[Site](http://www.biblica.com/)</sub></small> 
-* Easy-to-Read (ERV) &mdash; <small>&copy; Bible League International, 2006 <sub>[Site](https://www.bibleleague.org/what-we-do/translation/)</sub></small>
+* Easy-to-Read (**ERV**) &mdash; <small>&copy; Bible League International, 2006 <sub>[Site](https://www.bibleleague.org/what-we-do/translation/)</sub></small>
 
 [^1] Tiago 1.5-6
 
