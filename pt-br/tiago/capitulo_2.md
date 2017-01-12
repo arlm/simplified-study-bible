@@ -2,23 +2,23 @@
 
 ##Devemos tratar a todos com igualdade
 
-Irmãos e irmãs, _<font color="gray">eu sei que já ouviram isto antes</font>_, mas não façam diferença entre as pessoas por causa de sua aparência, sendo parciais com as pessoas ou tendo favoritos. Não tentem misturar a fé verdadeira do nosso glorioso Senhor Jesus, o Cristo, _<font color="gray">com a sua pretenção</font>_.
+_<font color="gray">Eu sei que já ouviu isto antes</font>_, mas não trate algumas pessoas melhor do que outras, fazendo diferença entre as pessoas por causa de sua aparência ou tendo favoritos.
 
-_<font color="gray">Por exemplo,</font>_ se derem um lugar especial ao que está bem vestido em detrimento ao que está com roupas velhas, não estão vocês fazendo discriminação, julgando com critérios errados?
+_<font color="gray">Por exemplo,</font>_ se der um lugar especial para quem está bem vestido mas não para quem está com roupas velhas, isto não mostra que você pensa que algumas pessoas são mais importantes do que outras? Isto é chamado de discriminação e você está julgando de forma errada.
 
-Deus escolheu os pobres aos olhos do mundo para serem _<font color="gray">indescritivelmente</font>_ ricos em fé[^1] e possuírem o Reino que Ele prometeu aos que o amam. No entanto, vocês têm desprezado os pobres _<font color="gray">ao favorecerem os ricos</font>_.
+Deus escolheu os pobres aos olhos das pessoas para serem _<font color="gray">indescritivelmente</font>_ ricos em fé[^1] e possuírem o Reino que Ele prometeu aos que o amam. Mas se você têm desprezado os pobres _<font color="gray">ao favorecido os ricos</font>_.
 
-_<font color="gray">Corrija-me se eu estiver errado, mas</font>_ não são os ricos que oprimem _<font color="gray">e exploram</font>_ vocês? Não são eles que os levam para serem julgados nos tribunais? Não são eles que difamam o nome honroso de Cristo que vocês tem invocado.
+Você sabe que os ricos são aqueles que tem tentado tomar o controle de sua vida. E que são eles que te levam para os julgamentos nos tribunais. E também são eles que falam mal do nome maravilhoso de Jesus, o Cristo, que vocês tem amam.
 
-Se obedecerem às leis de Deus estarão agindo corretamente, assim como está escrito em Levíticos 19.18:
+Se você obedecer às leis de Deus estará agindo corretamente, assim como está escrito em Levíticos 19.18:
 
-> “Não procurem vingança nem guardem rancor contra alguém do seu povo, mas **ame cada um o seu próximo como a si mesmo**.”
+> “Não procure vingança nem guarde rancor contra alguém do seu povo, mas **ame o seu próximo como a si mesmo**.”
 
-Mas, se tratarem os outros com parcialidade, _<font color="gray">dando atenção aqueles que podem lhes ajudar de alguma forma e ignorando os que parecem precisar de todo tipo de ajuda</font>_, estarão pecando e serão considerados culpados por quebrarem a lei.
+Mas, se tratar uma pessoa como mais importante do que outa, _<font color="gray">dando atenção para quem pode lhe ajudar e ignorando quem parecem precisar de todo tipo de ajuda</font>_, estará pecando e será considerado culpado por quebrar a lei.
 
-Se uma pessoa consegue seguir _<font color="gray">e obedecer</font>_ a toda a lei, mas falha em obedecer em apenas um único ponto, se torna culpada de quebrar todos os outros. Pois o mesmo Deus que disse: <cite>“Não adulterarás”</cite>[^2] também disse: <cite>“Não matarás”</cite>[^3]. Se você não comete adultério, mas comete assassinato, você se torna culpado de quebrar a lei, <font color="gray">não importa o que você pense sobre isso</font>.
+Você pode seguir _<font color="gray">e obedecer</font>_ todas as leis de Deus, mas se desobedecer apenas uma das coisas, você se torna culpado de quebrar todos as outras. Deus falou: <cite>“Não adulterarás”</cite>[^2] e o mesmo Deus também disse: <cite>“Não matarás”</cite>[^3]. Assim, se você não comete adultério, mas mata alguém, você é culpado de quebrar toda a lei de Deus, <font color="gray">não importa o que você pense sobre isso</font>.
 
-Falem e vivam como quem será julgado um dia. A lei que julga também nos dá a liberdade[^4], mas não esperem receber misericórdia do julgamento de Deus se vocês não mostrarem misericórdia[^5]. Mas as pessoas que tiveram misericórdia dos outros não serão condenados no Dia do Juízo Final.
+Você vai ser julgado pela lei de Deus um dia. Você deve lembrar disso em tudo o que fala e faz. A lei que nos julga também nos deixa livres[^4]. Sim, você precisa ter misericórdia dos outros, se você não mostrar misericórdia, então Deus não terá misericórdia de você quando for lhe julgar[^5]. Mas a pessoa que tiver misericórdia dos outros não será condenada no Dia do Juízo Final.
 
 [^1] Pobres herdando o reino dos céus
 
@@ -32,27 +32,25 @@ Falem e vivam como quem será julgado um dia. A lei que julga também nos dá a 
 
 ##Fé e boas obras
 
-Não adianta alguém dizer que tem fé se suas ações negam a sua fé. Uma fé em Jesus apenas em palavras pode salvá-lo.
+Não adianta de nada alguém dizer que tem fé se não faz nada além disso. A fé em Jesus só com palavras não pode salvar.
 
-_<font color="gray">Por exemplo</font>_, se você ver alguém _<font color="gray"> o frio,</font>_ necessitando de roupas, e sem nada para comer. Se você não lhe der o que ele precisa, não adianta nada dizer: _“Vá em paz, <font color="gray">que Deus o abençoe!</font> Aqueça-se e coma até se satisfazer”_.
+_<font color="gray">Por exemplo</font>_, se você ver alguém _<font color="gray"> o frio,</font>_ precisando de roupas, e sem nada para comer. Se você não der o que ele precisa, não adianta nada dizer: _“Vá em paz, <font color="gray">que Deus o abençoe!</font> Se aqueça e coma até estar satisfeito”_. Se você não ajudar esta pessoa, as suas palavras não valeram de nada. Se é apenas fé e palavras, sem nada mais, a fé não adianta de nada, ela está morta.
 
-A fé, se não for acompanhada de obras, está morta em si mesma.
+Alguém poderia dizer: *“Algumas pessoas tem fé e outras tem as boas obras”*. Eu responderia: *“Você não tem como me mostrar a sua fé se você não faz nada. Mas eu tenho como mostrar a você a minha fé pelas coisas boas que eu faço.”*.
 
-Mas se alguém disser: *“Você tem fé e eu tenho obras”*. Eu lhe diria: *“Me mostre como é possível ter fé sem as obras que a acompanham. Eu lhe mostrarei a minha fé por meio de ações”*.
+Você acha que apenas acreditar que existe somente um Deus vai levar a algum lugar? Até os demônios acreditam nisso e tremem <font color="gray">de medo</font>.
 
-Acha que apenas crer que existe somente um Deus vai levá-lo a algum lugar? Até os demônios acreditam nisso e tremem <font color="gray">de medo</font>.
+Quer que eu prove de que a fé sem boas obras é inútil <font color="gray"> e morta</font>?
 
-Quer provas de que a fé sem obras é inútil <font color="gray"> e morta</font>?
-
-A fé e as obras estavam juntas quando Abraão foi justificado. Foi pelo que fez quando ofereceu seu filho Isaque em sacrifício sobre o altar[^6], pelas suas ações a sua fé se tornou completa. Assim se cumpriu a Escritura, no que diz em Gênesis 15.6, e ele foi chamado amigo de Deus[^7]:
+A fé e as obras estavam juntas quando Abraão foi justificado por Deus pelo que ele fez. Abraão ofereceu o seu filho Isaque em sacrifício sobre o altar[^6]. Veja como a fé de Abraão e o que ele fez trabalharam junto. Assim se cumpriu o que estava escrito no livro de Gênesis 15.6, e ele foi chamado amigo de Deus[^7]:
 
 > “Abraão creu no Senhor, e isso lhe foi creditado como justiça.”
 
-Vejam que uma pessoa é justificada por Deus por meio das suas obras, e não apenas pelo que crê ou pensa.
+Veja que uma pessoa é justificada por Deus por meio do que ela faz, e não apenas pelo que crê ou pensa.
 
-O caso de Raabe, a prostituta[^8], é semelhante: ela foi justificada diante de Deus pelo que fez quando hospedou os espiões e os ajudou a escapar por outro caminho.
+Outro exemplo é Raabe. Ela era uma prostituta[^8],  mas ela foi justificada diante de Deus pelo que fez. Ela recebeu bem os espiões em sua casa e os ajudou a escapar por outro caminho.
 
-Remover as obras da fé é como retirar o espírito de um corpo, <font color="gray">ou sua respiração</font>. Tudo o que resta é um cadáver.
+O corpo de uma pessoa sem o espírito, <font color="gray">ou sua respiração</font> é somente um cadáver. O mesmo acontece com a fé, que sem as boas obras também está morta!
 
 [^6] Abraão oferece seu filho Isaque em sacrifício
 
