@@ -32,11 +32,11 @@ Não se enganem. Tudo o que é bom e tudo que é perfeito vem de Deus, que não 
 
 ##Ouvir e praticar a palavra de Deus
 
-Estejam prontos para ouvir, porém contenham seu desejo de falar e ficarem irados. Pois a ira humana _<font color="gray"> é algo fútil, que</font>_ não leva à vida justa que Deus quer que tenhamos.
+Esteja pronto para ouvir, mas controle o seu desejo de falar e ficar bravo. Sua ira _<font color="gray"> não leva a lugar nenhum</font>_ e não ajuda a levar a vida correta que Deus quer que tenhamos.
 
-Assim, livrem-se de toda impureza moral[^7], deixem de praticar as coisas más que tanto os influenciam _<font color="gray">e também todo excesso de malícia</font>_. Aceitem com humildade a palavra que Deus implantou em vocês, que é poderosa para salvar as suas almas.
+Assim, se livre de todo mal _<font color="gray">e das coisas ruins da sua vida</font>_[^7], deixe de fazer as coisas erradas que tem feito tanto praticar as coisas más que tanto os influenciam. Aceite com humildade a palavra que Deus colocou em seu coração, que é poderosa para salvar as sua vida.
 
-Vocês devem praticar o que a mensagem ensina e não devem somente ouvir, enganando a vocês mesmos[^8]. Mas se alguém observar atentamente a lei perfeita, que traz liberdade[^9], e continuar firme na sua prática, não apenas como um ouvinte negligente mas como um praticante ativo, _<font color="gray">vai evitar as muitas distrações que afastam das coisas verdadeiras e</font>_ Deus vai abençoar tudo o que essa pessoa fizer.
+Você deve praticar o que Deus ensina e não devem somente ouvir, enganando a você mesmo[^8]. Mas se você olhar atentamente para a lei de Deus, que traz liberdade[^9], e continuar praticando firmemente, não apenas ouvindo e esquecendo tudo depois, _<font color="gray">vai evitar as coisas que afastam de Deus</font>_ e Ele vai abençoar tudo o que você fizer.
 
 ##A religião que é aceita por Deus
 
