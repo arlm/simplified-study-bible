@@ -18,7 +18,7 @@ Quem tem condição humilde deve se orgulhar quando Deus lhe der riquezas e posi
 
 Ao ser tentado não diga: “Esta tentação vem de Deus”. Pois Deus não pode ser tentado pelo mal e Ele mesmo não tenta ninguém. O que acontece é quando uma pessoa é tentada, _<font color="gray">é que ela</font>_ é atraída e seduzida pelos seus próprios maus desejos _<font color="gray">e cobiça</font>_, e estes maus desejos tornam-se o foco e tomam controle _<font color="blue">de sua vida</font>_, fazendo com que o pecado nasça. Quando o pecado é consumado produz a morte.
 
-Não se engananem. Tudo o que é bom e todo dom que é perfeito vem de Deus, que não muda e não é inconstante[^5]. Nós temos um papel especial em seus planos. Ele nos chama para a vida pela sua palavra da verdade, para que possamos mostrar ao resto de sua criação, _<font color="gray"> e criaturas, a sua bondade e amor</font>_.
+Não se enganem. Tudo o que é bom e todo dom que é perfeito vem de Deus, que não muda e não é inconstante[^5]. Nós temos um papel especial em seus planos. Ele nos chama para a vida pela sua palavra da verdade, para que possamos mostrar ao resto de sua criação, _<font color="gray"> e criaturas, a sua bondade e amor</font>_.
 
 [^1] Coroa da vida
 
