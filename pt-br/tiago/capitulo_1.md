@@ -2,23 +2,23 @@
 
 ##Provas e tentações
 
-Não fujam dos diversos tipos de provações _<font color="gray">ou aflições</font>_. _<font color="gray">Por mais difíceis que sejam, no fim vocês vão</font>_ encontrar nisso motivo de grande alegria porque sua fé vai crescer na pressão e lhes ensinará a _<font color="gray">verdadeira</font>_ perseverança. Esta perseverança os torna maduros, íntegros _<font color="gray">e corretos</font>_, sem que lhes falte coisa alguma.
+Você vai ter muitas dificuldades _<font color="gray">na vida</font>_. _<font color="gray">Por mais difíceis que sejam, no fim vocês ver</font>_ que elas trazem motivo de  grande alegria _<font color="gray">porque quando a sua fé é testada,</font>_ você aprenderá a ser paciente no sofrimento. Se você exercitar a paciência em sua vida, se tornará completos _<font color="gray">e corretos</font>_. Você se tornará tudo aquilo que Deus quer de você.
 
 ##Peça por sabedoria
 
-Se algum de vocês sente falta da sabedoria necessária, peça a Deus, _<font color="gray">que é generoso e</font>_ dá a todos sem censura, de boa vontade; e ela lhe será concedida. Mas peça com fé, sem duvidar de modo nenhum. E aquele que duvida[^3] não ache que receberá coisa alguma do Senhor, pois tem a mente dividida e é inconstante _<font color="gray">e instável</font>_ em tudo o que faz.
+Se você sente que precisa de sabedoria, peça a Deus, _<font color="gray">que é generoso e</font>_ dá a todos com alegria; e Ele lhe dará a sabedoria que precisa. Mas você precisa pedir acreditando, sem duvidar de modo nenhum. E quem duvida[^3], não ache que receberá alguma coisa de Deus, pois fica pensando duas coisas diferentes ao mesmo tempo e nunca decidem o que querem fazer.
 
-Feliz é o homem que continua fiel mesmo na a provação _<font color="gray">ou aflição</font>_. Porque _<font color="gray">, em seu devido tempo,</font>_ receberá como prêmio a vida[^1] que Deus prometeu aos que O amam[^2].
+Feliz é o homem que continua fiel mesmo na dificuldade, porque _<font color="gray">, depois,</font>_ receberá como prêmio a vida[^1] que Deus prometeu aos que O amam[^2].
 
 ##As circunstâncias externas não perduram
 
-Quem tem condição humilde deve se orgulhar quando Deus lhe der riquezas e posição elevada, já o rico[^4] deve experimentar a humilde realidade de que é um mero mortal e que irá desaparecer, juntamente com os seus negócios.
+Quem é pobre deve se alegrar que Deus os considera tão importantes, já quem é rico[^4] devem se alegrar quando acontecem coisas ruins que o torna mais humilde. O rico é uma pessoa como todas as outras e mesmo fazendo planos para seus negócios, vai morrer e suas coisas vão passar.
 
 #A origem do pecado
 
-Ao ser tentado não diga: “Esta tentação vem de Deus”. Pois Deus não pode ser tentado pelo mal e Ele mesmo não tenta ninguém. O que acontece é quando uma pessoa é tentada, _<font color="gray">é que ela</font>_ é atraída e seduzida pelos seus próprios maus desejos _<font color="gray">e cobiça</font>_, e estes maus desejos tornam-se o foco e tomam controle _<font color="blue">de sua vida</font>_, fazendo com que o pecado nasça. Quando o pecado é consumado produz a morte.
+Quando sentir vontade de fazer algo errado_<font color="gray">, ou ruim,</font>_ não diga: “Esta tentação vem de Deus”. Pois Deus não pode ser tentado pelo mal e Ele mesmo não tenta ninguém. _<font color="gray">O que acontece é que</font>_ você é tentado pelas coisas más que deseja, e estes maus desejos te afastam de Deus e tomam controle _<font color="blue">da sua vida</font>_, fazendo com que surja o pecado. O pecado cresce, e cresce e no fim termina em morte.
 
-Não se engananem. Tudo o que é bom e todo dom que é perfeito vem de Deus, que não muda e não é inconstante[^5]. Nós temos um papel especial em seus planos. Ele nos chama para a vida pela sua palavra da verdade, para que possamos mostrar ao resto de sua criação, _<font color="gray"> e criaturas, a sua bondade e amor</font>_.
+Não se enganem. Tudo o que é bom e tudo que é perfeito vem de Deus, que não muda e é sempre o mesmo[^5]. Nós temos um papel especial em seus planos. Ele nos chama para viver pela sua palavra, para que possamos mostrar ao resto de sua criação, _<font color="gray"> e criaturas, a sua bondade e amor</font>_.
 
 [^1] Coroa da vida
 
