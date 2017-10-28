@@ -1,6 +1,6 @@
 # Summary
 
-* [Introduction](README.md)
+* [Introdução](README.md)
 * [Gênesis](genesis/README.md)
   * [Capítulo 1](genesis/capitulo_1.md)
   * [Capítulo 2](genesis/capitulo_2.md)
@@ -18,6 +18,4 @@
   * [Capítulo 1](mateus/capitulo_1.md)
   * [Capítulo 2](mateus/capitulo_2.md)
 * [Tiago](tiago.md)
-
-
 
