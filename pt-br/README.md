@@ -41,4 +41,4 @@ Todo material aqui presente teve como fonte de leitura, e pesquisa, as seguintes
 
 [^8] Provérbios 1.6
 
-[^9] Pedir em nome de Jesus
+[^9] João 14.13-14
