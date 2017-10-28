@@ -2,11 +2,11 @@
 
 ##Devemos tratar a todos com igualdade
 
-_<font color="gray">Eu sei que já ouviu isto antes</font>_, mas não trate algumas pessoas melhor do que outras, fazendo diferença entre as pessoas por causa de sua aparência ou tendo favoritos.
+_<font color="gray">Eu sei que já ouviu isto antes</font>_, mas não trate algumas pessoas melhor do que outras, fazendo diferença entre as pessoas por causa de sua aparência, ou tendo favoritos.
 
-_<font color="gray">Por exemplo,</font>_ se der um lugar especial para quem está bem vestido mas não para quem está com roupas velhas, isto não mostra que você pensa que algumas pessoas são mais importantes do que outras? Isto é chamado de discriminação e você está julgando de forma errada.
+_<font color="gray">Por exemplo,</font>_ se der um lugar especial para quem está bem vestido, mas não para quem está com roupas velhas, isto não mostra que você pensa que algumas pessoas são mais importantes do que outras? Isto é chamado de discriminação e você está julgando de forma errada.
 
-Deus escolheu os pobres aos olhos das pessoas para serem _<font color="gray">indescritivelmente</font>_ ricos em fé[^1] e possuírem o Reino que Ele prometeu aos que o amam. Mas se você têm desprezado os pobres _<font color="gray">ao favorecido os ricos</font>_.
+Deus escolheu os pobres aos olhos das pessoas para serem _<font color="gray">muito</font>_ ricos em fé[^1] e possuírem o Reino que Ele prometeu aos que O amam. Mas se você têm desprezado os pobres _<font color="gray">e favorecido os ricos</font>_.
 
 Você sabe que os ricos são aqueles que tem tentado tomar o controle de sua vida. E que são eles que te levam para os julgamentos nos tribunais. E também são eles que falam mal do nome maravilhoso de Jesus, o Cristo, que vocês tem amam.
 
