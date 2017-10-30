@@ -14,7 +14,7 @@ Se você obedecer às leis de Deus estará agindo corretamente, assim como está
 
 > “Não procure vingança nem guarde rancor contra alguém do seu povo, mas **ame o seu próximo como a si mesmo**.”
 
-Mas, se tratar uma pessoa como mais importante do que outa, _<font color="gray">dando atenção para quem pode lhe ajudar e ignorando quem parecem precisar de todo tipo de ajuda</font>_, estará pecando e será considerado culpado por quebrar a lei.
+Mas, se tratar uma pessoa como mais importante do que outra, _<font color="gray">dando atenção para quem pode lhe ajudar e ignorando quem parece precisar de todo tipo de ajuda</font>_, estará pecando e será considerado culpado por quebrar a lei.
 
 Você pode seguir _<font color="gray">e obedecer</font>_ todas as leis de Deus, mas se desobedecer apenas uma das coisas, você se torna culpado de quebrar todos as outras. Deus falou: <cite>“Não adulterarás”</cite>[^2] e o mesmo Deus também disse: <cite>“Não matarás”</cite>[^3]. Assim, se você não comete adultério, mas mata alguém, você é culpado de quebrar toda a lei de Deus, <font color="gray">não importa o que você pense sobre isso</font>.
 
@@ -32,13 +32,13 @@ Você vai ser julgado pela lei de Deus um dia. Você deve lembrar disso em tudo 
 
 ##Fé e boas obras
 
-Não adianta de nada alguém dizer que tem fé se não faz nada além disso. A fé em Jesus só com palavras não pode salvar.
+Não adianta de nada alguém dizer que você tem fé, se não faz nada além disso. A fé em Jesus só com palavras não salva.
 
-_<font color="gray">Por exemplo</font>_, se você ver alguém _<font color="gray"> o frio,</font>_ precisando de roupas, e sem nada para comer. Se você não der o que ele precisa, não adianta nada dizer: _“Vá em paz, <font color="gray">que Deus o abençoe!</font> Se aqueça e coma até estar satisfeito”_. Se você não ajudar esta pessoa, as suas palavras não valeram de nada. Se é apenas fé e palavras, sem nada mais, a fé não adianta de nada, ela está morta.
+_<font color="gray">Por exemplo</font>_, se você ver alguém _<font color="gray">com frio,</font>_ precisando de roupas, e sem nada para comer. E você não der o que ele precisa, não adianta nada dizer: _“Vá em paz, <font color="gray">que Deus o abençoe!</font> Se aqueça e coma até estar satisfeito”_. Se você não ajudar esta pessoa, as suas palavras não valeram de nada. São apenas palavras e fé, sem mais nada, esta fé não adianta de nada, ela está morta.
 
-Alguém poderia dizer: *“Algumas pessoas tem fé e outras tem as boas obras”*. Eu responderia: *“Você não tem como me mostrar a sua fé se você não faz nada. Mas eu tenho como mostrar a você a minha fé pelas coisas boas que eu faço.”*.
+Se alguém disser: *“Algumas pessoas tem fé e outras tem boas obras”*. Eu responderia: *“Você não tem como me mostrar a sua fé se você não faz nada. Mas eu tenho como mostrar a você a minha fé pelas coisas boas que eu faço.”*.
 
-Você acha que apenas acreditar que existe somente um Deus vai levar a algum lugar? Até os demônios acreditam nisso e tremem <font color="gray">de medo</font>.
+Você acha que só acreditar que existe somente um Deus vai levar a algum lugar? Até os demônios acreditam nisso e tremem <font color="gray">de medo</font>.
 
 Quer que eu prove de que a fé sem boas obras é inútil <font color="gray"> e morta</font>?
 
