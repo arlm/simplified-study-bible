@@ -2,7 +2,7 @@
 
 Minhas calorosas saudações ao servo de Deus e do Senhor Jesus Cristo que lê esta carta.
 
-Não fuja dos diversos tipo de de provações ou aflições. Por mais difíceis que sejam, no fim você vai encontrar nisso motivo de grande alegria porque sua fé vai crescer na pressão e lhe ensinará a perseverança. Esta perseverança o tornará maduro, íntegro e correto, sem que lhe falte coisa alguma. Se você sentir falta de sabedoria necessária para esta jornada, tudo o que deve fazer é pedir Deus, que em sua generosidade a concede livremente, de boa vontade. Mas peça com fé e devoção completa ao Senhor, sem duvidar de modo algum, pois aquele que duvida não receberá coisa alguma do Senhor.
+Você vai ter muitas dificuladades na vida, mas não fuja delas. Por mais que sejam difíceis, no fim você vai ver que elas trazem motivos de grande alegria porque quando a sua fé é testada, você aprende a ser paciente no sofrimento. Esta perseverança o tornará maduro, íntegro e correto, sem que lhe falte coisa alguma. Se você sentir falta de sabedoria nas dificuldades e decisões, tudo o que precisa fazer é pedir a Deus, que é generoso e dá a todos com alegria, e Ele dará a sabedoria que precisa. Mas você precisa pedir acreditando, sem duvidar de nenhum modo, pois quem duvida não recebe nenhuma coisa do Senhor, porque fica pensando duas coisas diferentes ao mesmo tempo e nunca decide o que quer fazer.
 
 Seja paciente até a vinda do Senhor. Fortaleça o seu coração e não desanime, pois o Senhor virá logo.
 
