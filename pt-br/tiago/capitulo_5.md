@@ -24,7 +24,7 @@ Acima de tudo, quando prometerem alguma coisa, não jurem pelo céu, nem pela te
 
 ##A Oração da Fé
 
-Se alguém está sofrendo? Ele deve orar.
+Alguém está sofrendo? Ele deve orar.
 
 Alguém está feliz<font color="gray">, e alegre</font>? Deve cantar hinos de louvor.
 
