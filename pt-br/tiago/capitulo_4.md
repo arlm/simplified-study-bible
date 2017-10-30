@@ -8,7 +8,7 @@ Vocês cobiçam alguma coisa que não podem ter, então invejam e matam para obt
 
 **Vocês não conseguem o que querem porque não pedem a Deus. E quando pedem, não recebem nada porque pedem por motivos errados. Vocês pedem para satisfazer seus próprios prazeres**.
 
-Gente adúltera <font color="gray">e infiel</font>! Vocês não sabem que a amando o mundo estão odiando a Deus? Quem quer ser amigo do mundo se torna inimigo de Deus.
+Gente adúltera <font color="gray">e infiel</font>! Vocês não sabem que amando o mundo estão odiando a Deus? Quem quer ser amigo do mundo se torna inimigo de Deus.
 
 Ou vocês acham que é sem razão que a Escritura diz: <cite>“Deus quer que o Espírito que Ele colocou em vós viva somente para Ele”? <font color="blue">Não acham</font> <font color="gray">que Deus tem fortes ciúmes pelo Espírito que Ele fez habitar em nós?</font> <font color="blue">Ou ainda</font> <font color="gray">que o Espírito que Ele fez habitar em nós nos ama zelosamente?</font></cite>[^1]
 
@@ -26,7 +26,7 @@ Agora é tempo de se entristecer, lamentar e chorar! Troquem o riso por choro e 
 
 ##O hábito de julgar os outros
 
-Não falem mal uns dos outros. Quem fala mal do outro, ou o julga, fala contra a lei de Deus e a julga. Você não está cumprindo o que a lei ordena quando a julga, mas se fazendo de juiz. <font color="gray">Saiba que</font> Deus é o único Legislador e Juiz. Somente Ele pode salvar e destruir. Quem você pensa que é para julgar os outros?
+Não falem mal uns dos outros. Quem fala mal do outro, ou o julga, fala contra a lei de Deus e a julga. Você não está cumprindo o que a lei ordena quando julga, mas se faz de juiz. <font color="gray">Saiba que</font> Deus é o único Legislador e Juiz. Somente Ele pode salvar e destruir. Quem você pensa que é para julgar os outros?
 
 ##Deixe Deus planejar a sua vida
 
