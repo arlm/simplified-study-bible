@@ -14,15 +14,15 @@ Você se acha sábio e instruído? Então seja um exemplo com seu comportamento 
 
 A sabedoria que vem de Deus é centrada em pureza, paz, gentileza, amor, moderação, compreensão, respeito, misericórdia e outros bons frutos. Também é imparcial e sincera, sem hipocrisia.
 
-A fé, se não for acompanhada de obras, está morta em si mesma. Veja que uma pessoa é justificada por Deus por meio das suas obras, e não apenas pela sua fé. Assim como o corpo sem o espírito está morto, também a fé sem as obras está morta!
+Não adianta de nada ter fé se você não fizer nada além disso. A fé em Jesus só com palavras não pode salvar, ela está morta. Veja que uma pessoa é justificada por Deus por meio das suas obras, e não apenas pela sua fé. Assim como o corpo sem o espírito está morto, também a fé sem as obras está morta!
 
 Tudo o que é bom, e todo dom que é perfeito, vem de Deus, que não muda e é sempre o mesmo. Ele nos chama para viver pela sua palavra, a Bíblia, para que possamos mostrar ao resto de sua criação, e criaturas, a sua bondade e amor.
 
 Se você observar atentamente a lei perfeita e continuar firme na sua prática, não apenas como um ouvinte negligente mas como um praticante ativo, Deus vai abençoar tudo o que você fizer.
 
-Se você conseguir seguir a toda a lei, mas falhar em obedecer em apenas um único ponto, se tornará culpado de quebrar todos os outros. Se você não comete adultério, mas comete assassinato, por exemplo, se torna culpado de quebrar a lei, não importa o que você pense sobre isso.
+Se você pode seguir, e obedecer, a todas as leis de Deus, mas se desobedecer apenas uma das coisas, você se torna culpado de desobedecer todas as outras. Se você não trair seu marido, ou esposa, mas matar alguém, por exemplo, será culpado de quebrar a lei, não importa o que você pense sobre isso.
 
-Fale e viva como quem será julgado um dia. A lei que julga também nos dá a liberdade, mas não espere receber misericórdia do julgamento de Deus se você não mostrar misericórdia. Mas se tiver misericórdia dos outros não será condenado no Dia do Juízo Final.
+Fale e viva como quem será julgado pela lei de Deus um dia. Você deve sempre lembrar disso em tudo o que fala e faz. A lei que julga também nos deixa livres. Sim, mas você precisa ter misericórdia dos outros, se você não perdoar os outros, então Deus não perdoará você no Dia do Juízo Final.
 
 Poucos entre vocês devem se tornar mestres na Igreja, pois nós, os que ensinamos, seremos julgados com mais rigor do que os outros.
 
@@ -54,7 +54,8 @@ A religião pura e verdadeira que Deus aceita é esta:
 * O rico deve experimentar a realidade de que é uma pessoa como todas as outras, e que vai morrer e suas coisas irão passar e desaparecer;
 * O rico não deve explorar, enganar ou perseguir os mais humildes;
 * Não acumular riquezas inutilmente;
-* Não fazer diferença entre as pessoas por causa de sua aparência ou posição, sendo parcial com as pessoas;
+* Não fazer diferença entre as pessoas por causa de sua aparência ou posição, tratando algumas pessoas melhor do que outras, ou tendo favoritos;
+* Não bucar vingança nem guardar rancor, mas amar o outro como a si mesmo;
 * Não favorecer alguma pessoa apenas para obter seus favores enquanto ignora os necessitados;
 * Amar cada um o seu próximo como a si mesmo;
 * Não ser hipócrita e usar a sua língua para abençoar e amaldiçoar ao mesmo tempo;
