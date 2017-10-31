@@ -6,7 +6,7 @@ Você vai ter muitas dificuladades na vida, mas não fuja delas. Por mais que se
 
 Seja paciente até a vinda do Senhor. Fortaleça o seu coração e não desanime, pois o Senhor virá logo.
 
-Cada um é tentado quando é atraído e seduzido pelos seus próprios maus desejos e cobiça, e estes maus desejos tornam-se o seu foco e tomam controle de sua vida, fazendo com que o pecado nasça. Quando o pecado é consumado, produz a morte. Lembre-se: Deus não pode ser tentado pelo mal e Ele mesmo não tenta ninguém.
+Quando sentir vontade de fazer algo errado, ou ruim, não diga que esta vontade veio de Deus. O que acontece é que você é tentado, e atraído, pelas coisas más que deseja, e estes maus desejos lhe afastam  de Deus e tomam o controle da sua vida, fazendo com que apareça o pecado. O pecado então cresce, e cresce, e no fim termina em morte. Lembre-se: Deus não pode ser tentado pelo mal e Ele mesmo não tenta ninguém.
 
 Portanto, submeta-se ao único e verdadeiro Deus em obediência e lute contra o Diabo, enfrentando os seus planos, que ele fugirá de você. Aproxime-se de Deus e Ele se aproximará de você!
 
@@ -16,7 +16,7 @@ A sabedoria que vem de Deus é centrada em pureza, paz, gentileza, amor, modera�
 
 A fé, se não for acompanhada de obras, está morta em si mesma. Veja que uma pessoa é justificada por Deus por meio das suas obras, e não apenas pela sua fé. Assim como o corpo sem o espírito está morto, também a fé sem as obras está morta!
 
-Tudo o que é bom, e todo dom que é perfeito, vem de Deus, que não muda e não é inconstante.
+Tudo o que é bom, e todo dom que é perfeito, vem de Deus, que não muda e é sempre o mesmo. Ele nos chama para viver pela sua palavra, a Bíblia, para que possamos mostrar ao resto de sua criação, e criaturas, a sua bondade e amor.
 
 Se você observar atentamente a lei perfeita e continuar firme na sua prática, não apenas como um ouvinte negligente mas como um praticante ativo, Deus vai abençoar tudo o que você fizer.
 
@@ -36,20 +36,22 @@ Você não sabe que amando o mundo está odiando a Deus? Quem quer ser amigo do 
 
 Você acha que apenas crer que existe somente um Deus vai levá-lo a algum lugar? Até os demônios acreditam nisso e tremem de medo.
 
-Você pensa ser religioso? Se não soube controlar a sua língua, ela irá expor o conteúdo do seu coração e sua religião não vale de nada!
+Você pensa ser religioso? Se não souber controlar a sua língua, ela mostrará o que tem em seu coração e a sua religiosidade não valerá de nada!
 
 A religião pura e verdadeira que Deus aceita é esta:
 
-* Cuidar dos órfãos e das viúvas nas suas aflições;
+* Cuidar dos órfãos e das viúvas nas suas dificuldades;
 * Guardar a si mesmo das coisas más deste mundo;
-* Estar pronto para ouvir, mas conter o desejo de falar e ficar irado;
+* Estar pronto para ouvir, mas controlar o desejo de falar e ficar bravo;
 * Livrar-se de toda impureza moral e excesso de malícia;
-* Deixar de praticar as coisas más;
+* Deixar de fazer as coisas erradas e más;
+* Aceitar a palavra que Deus colocou em seu coração;
 * Praticar o que a mensagem ensina e não somente ouvir;
+* Evitar as coisas que afastam de Deus;
 * Praticar obras que colaborem com a sua fé e não a neguem;
 * Ter um compromisso com Jesus não apenas em palavras e pensamento;
-* O humilde deve celebrar quando Deus lhe der riquezas e posição elevada;
-* O rico deve experimentar a humilde realidade de que é um mero mortal e irá desaparecer com fragilidade;
+* O pobre deve celebrar quando Deus lhe der riquezas e posição elevada;
+* O rico deve experimentar a realidade de que é uma pessoa como todas as outras, e que vai morrer e suas coisas irão passar e desaparecer;
 * O rico não deve explorar, enganar ou perseguir os mais humildes;
 * Não acumular riquezas inutilmente;
 * Não fazer diferença entre as pessoas por causa de sua aparência ou posição, sendo parcial com as pessoas;
